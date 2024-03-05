@@ -13,3 +13,11 @@
 - Die MAC-Adresse wird in der Regel in hexadezimal geschrieben.  
 - Über die MAC-Adresse kann man den Hersteller des Gerätes identifizieren.  
 - Die Mac-Adresse wird auch physische Adresse genannt.
+
+**FQDN(Fully Qualified Domain Name)**
+- https://www.beispiel.com/about/index.html  
+- Second-Level-Domain: beispiel  
+- Dateiname: index.html  
+- Verzeichnis: about  
+- Third-Level-Domain: 
+- Top-Level-Domain: com
