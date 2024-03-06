@@ -21,3 +21,12 @@
 - Verzeichnis: about  
 - Third-Level-Domain: 
 - Top-Level-Domain: com
+
+**Tabellenanalyse**
+
+**Zahlenreihen**
+
+**Matrizen**
+
+**Konzentration - Buchstaben**
+
