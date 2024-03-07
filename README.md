@@ -17,6 +17,18 @@ Dauer: ca. 10 Minuten
 ➠ Bisheriger beruflicher Werdegang
 ➠ Wesentliche Meilensteine und Erfolge
 ➠ Stärken mit Bezug zur Stelle
+**„Ich bin…“** (Persönliche Daten, Qualifikationen)
+Selbstvorstellung (Name, Alter, Herkunft)
+Ausbildung/Studium, höchster Abschluss
+Bisherige Jobs, Erfahrungen
+**„Ich kann…“** (Bisherige Erfolge)
+Meilensteine des Berufslebens
+Besondere Kenntnisse, Zertifikate
+Größte Erfolge (Zahlen!)
+**„Ich will…“** (Bezug zur Stelle)
+Mehrwert Ihrer Stärken und Talente
+Relevante Soft Skills
+Motivation für den Job
 
 **Phase 4: Rückfragen**
 Dauer: ca. 10 Minuten
