@@ -1,3 +1,35 @@
+**Die 5 Phasen in jedem Vorstellungsgespräch**
+Tatsächlich verlaufen fast alle Vorstellungsgespräche in fünf typischen Gesprächsphasen ab:
+**Phase 1: Smalltalk**
+Dauer: ca. 5 Minuten
+➠ Kurze Begrüßung
+➠ Namentliche Vorstellung
+➠ Frage nach Anreise & Befinden / Getränke
+
+**Phase 2: Kennenlernen**
+Dauer: ca. 15 Minuten
+➠ Arbeitgeber stellt sich vor
+➠ Unternehmen / Kultur / Produkte
+➠ Beschreibung der Position und Stelle
+
+**Phase 3: Selbstpräsentation**
+Dauer: ca. 10 Minuten
+➠ Bisheriger beruflicher Werdegang
+➠ Wesentliche Meilensteine und Erfolge
+➠ Stärken mit Bezug zur Stelle
+
+**Phase 4: Rückfragen**
+Dauer: ca. 10 Minuten
+➠ Fragen zu Inhalten & Anforderungen des Jobs
+➠ Fragen zu Erwartungen & Leistungsmessung
+➠ Fragen zu Entwicklungschancen
+
+**Phase 5: Abschluss**
+Dauer: ca. 5 Minuten
+➠ Dank für das Gespräch
+➠ Weitere Schritte / Fristen
+➠ Verabschiedung
+
 **Was können Sie über sich erzählen?**
 Vielen Dank für die Einladung und die Chance, mich vorzustellen. Mein Name ist Maria Muster, ich bin 27 und würde gerne drei Erfahrungen ins Zentrum meiner Selbstpräsentation stellen. Diese zeigen aus meiner Sicht am besten, warum ich zur Stelle passe: 1. …
 
