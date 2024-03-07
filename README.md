@@ -35,6 +35,11 @@ Dauer: ca. 10 Minuten
 ➠ Fragen zu Inhalten & Anforderungen des Jobs
 ➠ Fragen zu Erwartungen & Leistungsmessung
 ➠ Fragen zu Entwicklungschancen
+Wie würden Sie Ihre Unternehmenskultur beschreiben?
+Wie definieren Sie Erfolg für diese Position?
+Was ist aus Ihrer Sicht der Teil des Jobs, der am meisten
+frustrieren könnte?
+Wann kann ich frühestens mit einer Antwort von Ihnen rechnen?
 
 **Phase 5: Abschluss**
 Dauer: ca. 5 Minuten
@@ -66,3 +71,10 @@ Am meisten motivieren mich die Ergebnisse meiner Arbeit. Zu sehen, dass ich etwa
 
 **Haben Sie sich auch woanders beworben?**
 Ja, habe ich. Aber dieser Job wäre perfekt. Sie sind meine erste Wahl.
+
+**Was sind Ihre grösste Schächen?**
+Ich finde es schwer, mich in einer der beiden Kategorien wiederzufinden. Natürlich kann ich meine Meinung vertreten und auch stur sein, wenn ich eine Idee verteidige, die ich für richtig halte. Auf der anderen Seite finde ich aber auch einen Konsens und Kompromisse wichtig, wenn diese zum bestmöglichen Ergebnis führen. 
+
+**Redemittel**
+Entschuldigung, ich bin tatsächlich ein bisschen aufgeregt…
+Wow! Das habe ich so noch nicht gehört oder erlebt!
