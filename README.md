@@ -6,41 +6,32 @@
 [5]Jetzt denke ich, dass ich Deutsch vor der Abreise nach Deutschland auf dem Niveau B2 erreichen kann, obwohl ich nur den Hörteil nicht bestanden habe. Darüber hinaus verfüge ich dank meines Studiums in Shanghai über Englischkenntnisse auf dem Niveau B1.  
 [6]Mein Hobby ist es, Melodien zu summen und die Natur zu genissen.
 
+**Motivation**  
+[1]Die Pflege**ausbildung** und **-weiterbildung** in Deutschland gehört zur Weltspitze.   
+[2]Außerdem lege ich mehr Wert auf **Work-Life-Balance**. Um meine eigene Gesundheit zu bleiben, muss ich meine Freizeit mit meinen neuen Freunden verbringen. So kann ich meine tägliche Pflegearbeit besser erledigen.  
+[3]Wie allgemein bekannt ist, ist das **Sozialversicherungssystem** in Deutschland sehr attraktiv für diejenigen, die stabil in Deutschland arbeiten und leben möchten.  
+[4]Aus meiner Berufserfahrung kann ich sagen, dass ich die **Lebensatmosphäre** und das **Arbeitstempo** **in großen Städten** nicht mag. 
 
-**Phase 2: Kennenlernen**
-Dauer: ca. 15 Minuten
-➠ Arbeitgeber stellt sich vor
-➠ Unternehmen / Kultur / Produkte
-➠ Beschreibung der Position und Stelle
+**Ausbildung zum Pflegefachmann**  
+Die Ausbildung zum Pflegefachmann dauert in Vollzeit 3 Jahre. Sie besteht aus 2 Teilen: 2100 Stunden Theorie und 2500 Stunden Praxis. Die Zeit zwischen dem theoretischen Unterricht und der Praxis beträgt 4 bis 6 Wochen. Der theoretische Unterricht findet an einer Pflegeschule statt, während die Praxis in Krankenhäusern, stationären Pflegeeinrichtungen und ambulanten Pflegeeinrichtungen absolviert wird. Nach Abschluss der Ausbildung legt man die staatliche Prüfung zum Pflegefachmann ab.
 
-**Phase 3: Selbstpräsentation**
-Dauer: ca. 10 Minuten
-➠ Bisheriger beruflicher Werdegang
-➠ Wesentliche Meilensteine und Erfolge
-➠ Stärken mit Bezug zur Stelle
-**„Ich bin…“** (Persönliche Daten, Qualifikationen)
-Selbstvorstellung (Name, Alter, Herkunft)
-Ausbildung/Studium, höchster Abschluss
-Bisherige Jobs, Erfahrungen
-**„Ich kann…“** (Bisherige Erfolge)
-Meilensteine des Berufslebens
-Besondere Kenntnisse, Zertifikate
-Größte Erfolge (Zahlen!)
-**„Ich will…“** (Bezug zur Stelle)
-Mehrwert Ihrer Stärken und Talente
-Relevante Soft Skills
-Motivation für den Job
+**Arbeit**  
+[1]Unternehmen/Kultur/Produkte
 
-**Phase 4: Rückfragen**
-Dauer: ca. 10 Minuten
-➠ Fragen zu Inhalten & Anforderungen des Jobs
-➠ Fragen zu Erwartungen & Leistungsmessung
-➠ Fragen zu Entwicklungschancen
-Wie würden Sie Ihre Unternehmenskultur beschreiben?
-Wie definieren Sie Erfolg für diese Position?
+[2]Tätigkeiten
+Kommunication mit Ärzten, Patienten und ihren Familien.
+Grundpflege: Blutdruck messen, füttern, sich Körper reinigen
+Fachpflege: Medikamente und Injektionen geben
+
+
+
+Wie definieren Sie **Erfolg** für diese Stelle?
+Basierend auf der Liebe kümmern wir uns um die Gesundheit der Patienten.
+
 Was ist aus Ihrer Sicht der Teil des Jobs, der am meisten
-frustrieren könnte?
-Wann kann ich frühestens mit einer Antwort von Ihnen rechnen?
+**frustrieren** könnte?
+Wenn der Patient während der Behandlung Schmerzen erleidet und sogar der Tod eintritt.
+
 
 **Phase 5: Abschluss**
 Dauer: ca. 5 Minuten
