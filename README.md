@@ -19,8 +19,8 @@ Die Ausbildung zum Pflegefachmann dauert in Vollzeit 3 Jahre. Sie besteht aus 2 
 [1]Unternehmen/Kultur/Produkte
 
 [2]Tätigkeiten
-Kommunication mit Ärzten, Patienten und ihren Familien.
-Grundpflege: Blutdruck messen, füttern, sich Körper reinigen
+Kommunication mit Ärzten, Patienten und ihren Familien.  
+Grundpflege: Blutdruck messen, füttern, sich Körper reinigen  
 Fachpflege: Medikamente und Injektionen geben
 
 
