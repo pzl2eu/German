@@ -35,6 +35,7 @@ Ich glaube, ein Team ist wie ein Spiegel, der mir hilft, mich selbst in der Arbe
 Ich habe keine tiefe Kenntnisse über die verschiedenen Abteilungen in deutschen Krankenhäusern. Anfangs werde ich die Abteilungen flexibel nach den Bedürfnissen des Krankenhauses einrichten, später könnte ich dazu neigen, in einer bestimmten Abteilung zu arbeiten. Unabhängig von der Abteilung, in der ich arbeite, werde ich immer sorgfältig arbeiten und hochwertige Pflegedienstleistungen anbieten.
 
 **Weiterbildung**  
+Psychische Gesundheitspflege
 
 **Erfahrung**  
 Ich habe keine Erfarhung. Nach meinem Verständnis ist Kommunikation in der Grundpflege unerlässlich, man muss ständig auf die Bedürfnisse der Patienten achten und diese erfüllen.
@@ -43,7 +44,6 @@ Ich habe keine Erfarhung. Nach meinem Verständnis ist Kommunikation in der Grun
 klare Prioritäten setzen  
 Meditation
 
-Durchhaltevermögen???
 
 **Während und nach der Ausbildung**  
 Deutsch C1 erreichen  
@@ -64,3 +64,7 @@ Aus meiner Sicht gibt es 2 Belastungen: körperlich und seelisch.
 Körperlich gesehen, ist es nicht einfach, jeden Tag lange Stunden zu stehen und Nachtschicht zu Machen. Und bei der Arbeit besteht auch das Risiko einer Infektion.
 Seelisch gesehen, macht mich sogar der Tod von Fremden traurig, weil ich eine Person mit großer Empathie bin.
 Dazu denke ich, dass Lernbereitschaft wichtig ist, zum Beispiel, wie man den Tod von Patienten betrachtet und mit anderen Problemen umgeht, die in Zukunft auftreten könnten.
+
+**Nachfrage**
+Q1:Könnten Sie mir mehr über die Rotation durch verschiedene Abteilungen während der Ausbildung erzählen?
+Q2:Wie hoch ist die Wahrscheinlichkeit, nach der Ausbildung weiterhin im Unternehmen zu arbeiten?
