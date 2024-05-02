@@ -17,7 +17,7 @@ Die Ausbildung zum Pflegefachmann dauert in Vollzeit 3 Jahre. Sie besteht aus 2 
 
 **Unternehmen/Kultur/Produkte**
 
-**Tätigkeiten**
+**Tätigkeiten**  
 Kommunication mit Ärzten, Patienten und ihren Familien.  
 Grundpflege: Blutdruck messen, füttern, sich Körper reinigen  
 Fachpflege: Medikamente und Injektionen geben  
@@ -59,7 +59,7 @@ Außerdem gibt es ein Online-Seminar aus Österreich zum selbstständigen Deutsc
 Es gibt eine Discord-Community namens GLAD. Diese hat ungefähr zehntausend aktive Mitglieder online. Wenn ich ein ungelöstes Problem habe, kann ich es entweder im Frage-Forum posten oder direkt im Textkanal auf Englisch anfragen. Auf diese Weise erhalte ich zeitnah viele Rückmeldungen aus der ganzen Welt. Nachdem ich die B1-Prüfung bestanden habe, biete ich auch anderen Mitgliedern Hilfe an. Das finde ich großartig!
 ChatGPT 4 liefert mir außerdem viele hilfreiche Informationen zum Deutschlernen.
 
-**Belastung**
+**Belastung**  
 Aus meiner Sicht gibt es 2 Belastungen: körperlich und seelisch.
 Körperlich gesehen, ist es nicht einfach, jeden Tag lange Stunden zu stehen und Nachtschicht zu Machen. Und bei der Arbeit besteht auch das Risiko einer Infektion.
 Seelisch gesehen, macht mich sogar der Tod von Fremden traurig, weil ich eine Person mit großer Empathie bin.
