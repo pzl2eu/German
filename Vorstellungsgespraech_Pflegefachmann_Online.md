@@ -40,14 +40,14 @@ Ich habe keine tiefe Kenntnisse über die verschiedenen Abteilungen in deutschen
 Ich habe keine Erfarhung. Nach meinem Verständnis ist Kommunikation in der Grundpflege unerlässlich, man muss ständig auf die Bedürfnisse der Patienten achten und diese erfüllen.
 
 **Umgang mit Stress**  
-klare Prioritäten setzen
+klare Prioritäten setzen  
 Meditation
 
 Durchhaltevermögen???
 
 **Während und nach der Ausbildung**  
-Deutsch C1 erreichen
-eigenen Freundeskreis aufbauen
+Deutsch C1 erreichen  
+eigenen Freundeskreis aufbauen  
 Ich würde gerne, nach der Ausbildung als Pflegefachmann in der Firma arbeiten, wenn alles gut läuft. 
 
 **Was sind Ihre grösste Schächen?**  
