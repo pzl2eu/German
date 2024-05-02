@@ -28,32 +28,32 @@ A:Basierend auf der Liebe kümmern wir uns um die Gesundheit der Patienten.
 Q:Was ist aus Ihrer Sicht der Teil des Jobs, der am meisten **frustrieren** könnte?
 A:Wenn der Patient während der Behandlung Schmerzen erleidet und sogar der Tod eintritt.
 
-**Team**
+**Team**  
 Ich glaube, ein Team ist wie ein Spiegel, der mir hilft, mich selbst in der Arbeit klarer zu sehen. Wir machen oft unbewusst Fehler, ohne sie zu bemerken. Mitglieder können mir helfen, sodass ich mich selbst verbessern und dann Wert für das Team schaffen kann.
 
-**Abteilung**
+**Abteilung**  
 Ich habe keine tiefe Kenntnisse über die verschiedenen Abteilungen in deutschen Krankenhäusern. Anfangs werde ich die Abteilungen flexibel nach den Bedürfnissen des Krankenhauses einrichten, später könnte ich dazu neigen, in einer bestimmten Abteilung zu arbeiten. Unabhängig von der Abteilung, in der ich arbeite, werde ich immer sorgfältig arbeiten und hochwertige Pflegedienstleistungen anbieten.
 
-**Weiterbildung**
+**Weiterbildung**  
 
-**Erfahrung**
+**Erfahrung**  
 Ich habe keine Erfarhung. Nach meinem Verständnis ist Kommunikation in der Grundpflege unerlässlich, man muss ständig auf die Bedürfnisse der Patienten achten und diese erfüllen.
 
-**Umgang mit Stress**
+**Umgang mit Stress**  
 klare Prioritäten setzen
 Meditation
 
 Durchhaltevermögen???
 
-**Während und nach der Ausbildung**
+**Während und nach der Ausbildung**  
 Deutsch C1 erreichen
 eigenen Freundeskreis aufbauen
 Ich würde gerne, nach der Ausbildung als Pflegefachmann in der Firma arbeiten, wenn alles gut läuft. 
 
-**Was sind Ihre grösste Schächen?**
+**Was sind Ihre grösste Schächen?**  
 Meine Deutsch-Hör- und Sprechfähigkeiten sind noch nicht gut genug. Ich denke, dass ich sie schneller verbessern könnte, wenn ich in Deutschland leben würde.
 
-**Deutschlern/Lernfähigkeit/Erfolg**
+**Deutschlern/Lernfähigkeit/Erfolg**  
 Als Lerner des VHS-Lernportals, einer kostenlosen Plattform aus Deutschland, möchte ich mich für die Entwicklung bedanken. Das Portal bietet nicht nur Alltagsdeutsch bis zum Niveau B1, sondern auch einen beruflichen B2-Deutschkurs. Um meine Ausbildung besser zu beginnen, lerne ich jeden Tag diesen Kurs.
 Außerdem gibt es ein Online-Seminar aus Österreich zum selbstständigen Deutschlernen. Dort habe ich die Möglichkeit, mit anderen Sprechen zu üben.
 Es gibt eine Discord-Community namens GLAD. Diese hat ungefähr zehntausend aktive Mitglieder online. Wenn ich ein ungelöstes Problem habe, kann ich es entweder im Frage-Forum posten oder direkt im Textkanal auf Englisch anfragen. Auf diese Weise erhalte ich zeitnah viele Rückmeldungen aus der ganzen Welt. Nachdem ich die B1-Prüfung bestanden habe, biete ich auch anderen Mitgliedern Hilfe an. Das finde ich großartig!
