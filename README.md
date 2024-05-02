@@ -15,22 +15,18 @@
 **Ausbildung zum Pflegefachmann**  
 Die Ausbildung zum Pflegefachmann dauert in Vollzeit 3 Jahre. Sie besteht aus 2 Teilen: 2100 Stunden Theorie und 2500 Stunden Praxis. Die Zeit zwischen dem theoretischen Unterricht und der Praxis beträgt 4 bis 6 Wochen. Der theoretische Unterricht findet an einer Pflegeschule statt, während die Praxis in Krankenhäusern, stationären Pflegeeinrichtungen und ambulanten Pflegeeinrichtungen absolviert wird. Nach Abschluss der Ausbildung legt man die staatliche Prüfung zum Pflegefachmann ab.
 
-**Arbeit**  
-[1]Unternehmen/Kultur/Produkte
+**Unternehmen/Kultur/Produkte**
 
-[2]Tätigkeiten
+**Tätigkeiten**
 Kommunication mit Ärzten, Patienten und ihren Familien.  
 Grundpflege: Blutdruck messen, füttern, sich Körper reinigen  
-Fachpflege: Medikamente und Injektionen geben
+Fachpflege: Medikamente und Injektionen geben  
 
+Q:Wie definieren Sie **Erfolg** für diese Stelle?
+A:Basierend auf der Liebe kümmern wir uns um die Gesundheit der Patienten.
 
-
-Wie definieren Sie **Erfolg** für diese Stelle?
-Basierend auf der Liebe kümmern wir uns um die Gesundheit der Patienten.
-
-Was ist aus Ihrer Sicht der Teil des Jobs, der am meisten
-**frustrieren** könnte?
-Wenn der Patient während der Behandlung Schmerzen erleidet und sogar der Tod eintritt.
+Q:Was ist aus Ihrer Sicht der Teil des Jobs, der am meisten **frustrieren** könnte?
+A:Wenn der Patient während der Behandlung Schmerzen erleidet und sogar der Tod eintritt.
 
 **Team**
 Ich glaube, ein Team ist wie ein Spiegel, der mir hilft, mich selbst in der Arbeit klarer zu sehen. Wir machen oft unbewusst Fehler, ohne sie zu bemerken. Mitglieder können mir helfen, sodass ich mich selbst verbessern und dann Wert für das Team schaffen kann.
