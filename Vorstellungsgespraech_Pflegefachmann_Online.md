@@ -53,12 +53,12 @@ später könnte ich dazu neigen, in einer bestimmten Abteilung zu arbeiten. Unab
 Psychische Gesundheitspflege
 
 **Erfahrung**  
-Ich habe keine Erfarhung. Nach meinem Verständnis ist Kommunikation in der Grundpflege unerlässlich, man muss ständig auf die Bedürfnisse der Patienten achten und diese erfüllen.
+Ich habe keine Erfarhung. Nach meinem Verständnis ist Kommunikation in der Pflege unerlässlich, man muss ständig auf die Bedürfnisse der Patienten achten und diese erfüllen.
 
 **Umgang mit Stress**  
 klare Prioritäten setzen  
 Meditation
-
+Mit anderen austauschen???
 
 **Während und nach der Ausbildung**  
 Deutsch C1 erreichen  
@@ -72,11 +72,11 @@ Meine Deutsch-Hör- und Sprechfähigkeiten sind noch nicht gut genug. Ich denke,
 Als Lerner des VHS-Lernportals, einer kostenlosen Plattform aus Deutschland, möchte ich mich für die Entwicklung bedanken. Das Portal bietet nicht nur Alltagsdeutsch bis zum Niveau B1, sondern auch einen beruflichen B2-Deutschkurs. Um meine Ausbildung besser zu beginnen, lerne ich jeden Tag diesen Kurs.
 Außerdem gibt es ein Online-Seminar aus Österreich zum selbstständigen Deutschlernen. Dort habe ich die Möglichkeit, mit anderen Sprechen zu üben.
 Es gibt eine Discord-Community namens GLAD. Diese hat ungefähr zehntausend aktive Mitglieder online. Wenn ich ein ungelöstes Problem habe, kann ich es entweder im Frage-Forum posten oder direkt im Textkanal auf Englisch anfragen. Auf diese Weise erhalte ich zeitnah viele Rückmeldungen aus der ganzen Welt. Nachdem ich die B1-Prüfung bestanden habe, biete ich auch anderen Mitgliedern Hilfe an. Das finde ich großartig!
-ChatGPT 4 liefert mir außerdem viele hilfreiche Informationen zum Deutschlernen.
+Chatbot liefert mir außerdem viele hilfreiche Informationen zum Deutschlernen.
 
 **Belastung**  
 Aus meiner Sicht gibt es 2 Belastungen: körperlich und seelisch.
-Körperlich gesehen, ist es nicht einfach, jeden Tag lange Stunden zu stehen und Nachtschicht zu Machen. Und bei der Arbeit besteht auch das Risiko einer Infektion.
+Körperlich gesehen, ist es nicht einfach, jeden Tag lange Stunden zu stehen und Nachtschicht zu machen. Und bei der Arbeit besteht auch das Risiko einer Infektion.
 Seelisch gesehen, macht mich sogar der Tod von Fremden traurig, weil ich eine Person mit großer Empathie bin.
 Dazu denke ich, dass Lernbereitschaft wichtig ist, zum Beispiel, wie man den Tod von Patienten betrachtet und mit anderen Problemen umgeht, die in Zukunft auftreten könnten.
 
