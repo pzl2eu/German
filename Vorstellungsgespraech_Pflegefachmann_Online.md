@@ -43,7 +43,11 @@ A:Wenn der Patient während der Behandlung Schmerzen erleidet und sogar der Tod 
 Ich glaube, ein Team ist wie ein Spiegel, der mir hilft, mich selbst in der Arbeit klarer zu sehen. Wir machen oft unbewusst Fehler, ohne sie zu bemerken. Mitglieder können mir helfen, sodass ich mich selbst verbessern und dann Wert für das Team schaffen kann.
 
 **Abteilung**  
-Ich habe keine tiefe Kenntnisse über die verschiedenen Abteilungen in deutschen Krankenhäusern. Anfangs werde ich die Abteilungen flexibel nach den Bedürfnissen des Krankenhauses einrichten, später könnte ich dazu neigen, in einer bestimmten Abteilung zu arbeiten. Unabhängig von der Abteilung, in der ich arbeite, werde ich immer sorgfältig arbeiten und hochwertige Pflegedienstleistungen anbieten.
+Ich habe keine tiefe Kenntnisse über die verschiedenen Abteilungen in deutschen Krankenhäusern. 
+
+Anfangs werde ich die Abteilungen flexibel nach den Bedürfnissen des Krankenhauses einrichten,
+
+später könnte ich dazu neigen, in einer bestimmten Abteilung zu arbeiten. Unabhängig von der Abteilung, in der ich arbeite, werde ich immer sorgfältig arbeiten und hochwertige Pflegedienstleistungen anbieten.
 
 **Weiterbildung**  
 Psychische Gesundheitspflege
