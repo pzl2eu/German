@@ -9,7 +9,9 @@ in Zukunft als Pflegefachmann in Deutschland zu arbeiten.
 
 
 [5]Jetzt denke ich, dass ich Deutsch vor der Abreise nach Deutschland auf dem Niveau B2 erreichen kann, obwohl ich nur den Hörteil nicht bestanden habe. Darüber hinaus verfüge ich dank meines Studiums in Shanghai über Englischkenntnisse auf dem Niveau B1.  
-[6]Mein Hobby ist es, Melodien zu summen und die Natur zu genissen.
+[6]   
+
+Mein Hobby ist es, Melodien zu summen und die Natur zu genissen.
 
 **Motivation**  
 [1]Die Pflege**ausbildung** und **-weiterbildung** in Deutschland gehört zur Weltspitze.   
