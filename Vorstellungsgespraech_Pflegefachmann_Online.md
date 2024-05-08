@@ -2,7 +2,12 @@
 [1]Vielen Dank für die Einladung und die Chance, mich vorzustellen.  
 [2]Mein Name ist Luo Pengzhao und ich komme aus China, genauer gesagt aus Hebei, Baoding, einer Stadt nicht weit von Peking entfernt.    
 [3]Im Jahr 2022 habe ich meinen Bachelor in Geoinformatik, einem ingenieurwissenschaftlichen Fach, an der Shanghai Ocean University abgeschlossen.  Leider habe ich festgestellt, dass viele Menschen in Shanghai aufgrund von Corona und Politik ohne ausreichende Pflegeleistungen gestorben sind. Deshalb habe ich die Bedeutung von Pflege erkannt.  
-[4]Bisher habe ich als Technik-Künstler in einer Spielefirma und als Geschäftsmitarbeiter gearbeitet. Als Technik-Künstler habe ich gemerkt, dass der Job nicht zu mir passt. Ich möchte nicht hauptsächlich vor dem Computer sitzen. Deshalb habe ich einen Freund unterstützt, sein Geschäft zu führen, auch wegen der Schwangerschaft seiner Frau. Gelegentlich hat mir ein anderer Freund, der sich in Deutschland auf ein Masterstudium vorbereitet, eine kurze Nachricht geschickt, dass Deutschland viele Ausbildungsplätze zum Pflegefachmann anbietet. Daher habe ich beschlossen, in meiner Freizeit selbst Deutsch zu lernen und in Zukunft als Pflegefachmann in Deutschland zu arbeiten.  
+[4]Bisher habe ich als Technik-Künstler in einer Spielefirma und als Geschäftsmitarbeiter gearbeitet. Als Technik-Künstler habe ich gemerkt, dass der Job nicht zu mir passt. Ich möchte nicht hauptsächlich vor dem Computer sitzen. Deshalb habe ich einen Freund unterstützt, sein Geschäft zu führen, auch wegen der Schwangerschaft seiner Frau. Gelegentlich hat mir ein anderer Freund, der sich in Deutschland auf ein Masterstudium vorbereitet, eine kurze Nachricht geschickt, dass Deutschland viele Ausbildungsplätze zum Pflegefachmann anbietet. Daher habe ich beschlossen, in meiner Freizeit selbst Deutsch zu lernen und 
+
+
+in Zukunft als Pflegefachmann in Deutschland zu arbeiten.  
+
+
 [5]Jetzt denke ich, dass ich Deutsch vor der Abreise nach Deutschland auf dem Niveau B2 erreichen kann, obwohl ich nur den Hörteil nicht bestanden habe. Darüber hinaus verfüge ich dank meines Studiums in Shanghai über Englischkenntnisse auf dem Niveau B1.  
 [6]Mein Hobby ist es, Melodien zu summen und die Natur zu genissen.
 
