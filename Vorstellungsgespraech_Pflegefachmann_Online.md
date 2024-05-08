@@ -20,7 +20,11 @@ Mein Hobby ist es, Melodien zu summen und die Natur zu genissen.
 [4]Aus meiner Berufserfahrung kann ich sagen, dass ich die **Lebensatmosphäre** und das **Arbeitstempo** **in großen Städten** nicht mag. 
 
 **Ausbildung zum Pflegefachmann**  
-Die Ausbildung zum Pflegefachmann dauert in Vollzeit 3 Jahre. Sie besteht aus 2 Teilen: 2100 Stunden Theorie und 2500 Stunden Praxis. Die Zeit zwischen dem theoretischen Unterricht und der Praxis beträgt 4 bis 6 Wochen. Der theoretische Unterricht findet an einer Pflegeschule statt, während die Praxis in Krankenhäusern, stationären Pflegeeinrichtungen und ambulanten Pflegeeinrichtungen absolviert wird. Nach Abschluss der Ausbildung legt man die staatliche Prüfung zum Pflegefachmann ab.
+Die Ausbildung zum Pflegefachmann dauert in Vollzeit 3 Jahre. Sie besteht aus 2 Teilen: 2100 Stunden Theorie und 2500 Stunden Praxis. 
+
+Die Zeit zwischen dem theoretischen Unterricht und der Praxis beträgt 4 bis 6 Wochen. 
+
+Der theoretische Unterricht findet an einer Pflegeschule statt, während die Praxis in Krankenhäusern, stationären Pflegeeinrichtungen und ambulanten Pflegeeinrichtungen absolviert wird. Nach Abschluss der Ausbildung legt man die staatliche Prüfung zum Pflegefachmann ab.
 
 **Unternehmen/Kultur/Produkte**
 
