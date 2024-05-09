@@ -1,4 +1,4 @@
-**Selbstvorstellung**  
+# **Selbstvorstellung**  
 [1]Vielen Dank für die Einladung und die Chance, mich vorzustellen.  
 [2]Mein Name ist Luo Pengzhao und ich komme aus China, genauer gesagt aus Hebei, Baoding, einer Stadt nicht weit von Peking entfernt.    
 [3]Im Jahr 2022 habe ich meinen Bachelor in Geoinformatik, einem ingenieurwissenschaftlichen Fach, an der Shanghai Ocean University abgeschlossen.  Leider habe ich festgestellt, dass viele Menschen in Shanghai aufgrund von Corona und Politik ohne ausreichende Pflegeleistungen gestorben sind. Deshalb habe ich die Bedeutung von Pflege erkannt.  
@@ -6,7 +6,7 @@
 [5]Jetzt denke ich, dass ich Deutsch vor der Abreise nach Deutschland auf dem Niveau B2 erreichen kann, obwohl ich nur den Hörteil nicht bestanden habe. Darüber hinaus verfüge ich dank meines Studiums in Shanghai über Englischkenntnisse auf dem Niveau B1.  
 [6]Mein Hobby ist es, mit Freunden Melodien zu summen und die Natur zu genießen. Dadurch könnten wir Stress abbauen und unsere Akkus aufladen.
 
-**Motivation**  
+# **Motivation**  
 [1]Die Pflege**ausbildung** und **-weiterbildung** in Deutschland gehört zur Weltspitze.   
 [2]Außerdem lege ich mehr Wert auf **Work-Life-Balance**. Um meine eigene Gesundheit zu bleiben, muss ich meine Freizeit mit meinen neuen Freunden verbringen. So kann ich meine tägliche Pflegearbeit besser erledigen.  
 [3]Wie allgemein bekannt ist, ist das **Sozialversicherungssystem** in Deutschland sehr attraktiv für diejenigen, die stabil in Deutschland arbeiten und leben möchten.  
