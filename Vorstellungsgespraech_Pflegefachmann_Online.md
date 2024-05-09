@@ -19,7 +19,100 @@ Mein Hobby ist es, Melodien zu summen und die Natur zu genissen.
 [3]Wie allgemein bekannt ist, ist das **Sozialversicherungssystem** in Deutschland sehr attraktiv für diejenigen, die stabil in Deutschland arbeiten und leben möchten.  
 [4]Aus meiner Berufserfahrung kann ich sagen, dass ich die **Lebensatmosphäre** und das **Arbeitstempo** **in großen Städten** nicht mag. 
 
-**Ausbildung zum Pflegefachmann**  
+**Ausbildung zum Pflegefachmann**
+nach der Geburt, im Kindesalter, aufgrund einer Erkrankung, bei einer Verletzung oder im hohen Alter
+Im Gesundheitswesen kannst du anspruchsvolle und abwechslungsreiche Aufgaben übernehmen
+Pflegefachleute kümmern sich um die Gesundheit und das Wohlbefinden von Menschen. Sie unterstützen beispielsweise bei der Körperpflege, verabreichen Medikamente und führen Pflegeberichte. 
+Je nach Spezialisierung übernehmen Pflegefachleute Aufgaben aus verschiedenen Pflegebereichen:
+
+Altenpflege
+Krankenpflege
+Kinderkrankenpflege
+Heilerziehungspflege
+Da die Ausbildung zum Pflegefachmann oder zur Pflegefachfrau eine gebündelte Pflegeausbildung ist, können Pflegefachkräfte später in verschiedenen Pflegeberufen eingesetzt werden, weshalb die späteren Tätigkeiten variieren können.
+Altenpflege: In Seniorenheimen oder Wohnanlagen für betreutes Wohnen kümmern sich Pflegefachleute um Senioren und helfen bei der Bewältigung ihres Alltags. Sie unterstützen sie bei der Körperpflege, bei der Nahrungsaufnahme sowie bei der Einnahme von Medikamenten.  
+(Kinder-)Krankenpflege: Im Bereich der (Kinder)Krankenpflege arbeiten Pflegefachmänner in Kliniken oder Krankenhäusern. Dort sind sie für die Betreuung und Pflege von Patienten zuständig und führen einfache medizinische Behandlungen durch – sie wechseln zum Beispiel Verbände oder verabreichen Infusionen auf ärztliche Anordnung.  
+Heilerziehungspflege: In der Heilerziehungspfleger Ausbildung dreht sich der Alltag um die Arbeit mit Menschen mit einer Behinderung. Neben der Pflegetätigkeit geht es vor allem darum, Menschen mit einem Handicap zu fördern, damit sie ihre Selbstständigkeit bewahren können.  
+Dokumentation der Maßnahmen und verwaltende Tätigkeiten: Diese Tätigkeit übernehmen Pflegefachleute in jedem Berufsbild, denn es ist wichtig Rück- und Fortschritte der Patienten zu überwachen und zu dokumentieren. Dafür pflegen sie die Patientenakten sorgfältig. Zu den verwaltenden Tätigkeiten gehören unter anderem die Abrechnungen von Pflegedienstleistungen oder das Nachbestellen von Materialien und Arzneimitteln.
+
+3 Gründe für die Ausbildung zum Pflegefachmann
+1. Generalistische Ausrichtung: Du lernst alle Pflegebereiche kennen und weißt am Ende, was dir am meisten Spaß macht. 
+
+2. Super Zukunftsperspektive: Pflegefachkräfte werden überall gesucht. Du hast also beste Zukunftsaussichten.
+
+3. Ein Job mit Sinn: Kranke Menschen gesund pflegen, alte Menschen auf dem letzten Stück ihres Lebens begleiten – du wählst einen Beruf mit Sinn.
+
+Wo kann ich als Pflegefachmann arbeiten?
+Als Pflegefachmann kannst du in Krankenhäusern, Kliniken, Seniorenheimen und anderen sozialen Einrichtungen Beschäftigung finden.
+
+Deine Einsatzorte auf einen Blick
+
+Krankenhäuser
+Kliniken
+Gesundheitszentren
+Seniorenheime
+Anlagen für betreutes Wohnen
+soziale Einrichtungen
+ambulante Dienste
+
+Wie sind die Arbeitszeiten als Pflegefachfrau?
+Als Pflegefachmann oder Pflegefachfrau arbeitest du **38 bis 40 Stunden** die Woche im **Schichtdienst**, weshalb du bereit sein solltest, deinen Alltag zeitlich flexibel zu gestalten. Da Patienten rund um die Uhr auf deine Hilfe angewiesen sind, arbeitest du auch nachts, am Wochenende sowie an Feiertagen. Als Ausgleich dafür hast du dann an einem anderen Wochentag frei.
+
+Was ist eine Visite?
+Eine Pflegevisite ist der Besuch von zwei Pflegefachkräften bei einem Patienten in der Pflegeeinrichtung oder Zuhause. Bei der Visite werden die Fortschritte des Patienten festgehalten und wenn nötig, ein neuer Bedarf an Medikamenten und Pflegemaßnahmen ermittelt. Die Pflegevisite ist Teil des Qualitätsmanagements.
+
+Welche Arbeitskleidung tragen Pflegefachleute?
+Im stationären Dienst tragen Pflegefachkräfte einen **Kasack** – das sind kurzärmlige Hemden mit V-Ausschnitt und Seitentaschen – sowie eine **weiße Hose** und **medizinische Schuhe**. Das sehen die Hygienevorschriften so vor.
+
+Wie läuft die Ausbildung zur Pflegefachfrau ab?
+Die Ausbildung zur Pflegefachfrau dauert **drei Jahre**. Es handelt sich um eine **schulische Ausbildung** mit praktischen Einsätzen. Theoriephasen an der Schule wechseln sich mit Praxisphasen in verschiedenen Pflegeeinrichtungen ab.
+
+**Träger der Ausbildung** können Kliniken, Krankenhäuser, Altenheime oder andere soziale Einrichtungen sein. Ob du die Ausbildung an einer Pflegeschule, einer Fachschule für Gesundheitsberufe, in einer Schule für Altenpflege oder für Krankenpflege machst, spielt bei der generalistischen Pflegeausbildung erstmal keine Rolle.
+
+Es gibt ein Ausbildungsgehalt, zu gleichen Teilen Praxis und Theorie und die Ausbildung ist bundesweit einheitlich geregelt.
+
+Was lernt eine Pflegefachfrau in der Ausbildung?
+In der Berufsschule lernst du den Unterschied zwischen der stationären und der ambulanten Pflege sowie der Akut- und Langzeitpflege kennen – also einmal Menschen, die nach einem Unfall für den Zeitraum ihrer Genesung Unterstützung benötigen und dann Menschen, die für den Rest ihres Lebens auf Unterstützung angewiesen sind. 
+
+Außerdem erfährst du, was du im Umgang mit unterschiedlichen Menschengruppen zu beachten hast, da du später mit Kindern, verletzten und kranken Menschen, Menschen mit einer psychischen Erkrankung oder Handicap sowie mit alten Menschen arbeitest. 
+
+Im Ausbildungsrahmenplan sind elf Lernfelder aufgeführt, die die Auszubildenden in insgesamt 1.900 Stunden erarbeiten.
+
+Grundlagen zum Ausbildungsstart
+Unterstützung der Patienten bei Bewegung und Selbstversorgung
+Reflexion der Pflegerfahrung
+Gesundheitsförderung und -prävention
+Kurative Prozesse und Patientensicherheit
+Handeln in Akutsituationen
+Rehabilitation
+Begleitung von Patienten in der letzten Lebensphase
+Unterstützung der Patienten bei der Lebensgestaltung
+Pflege von Kindern und Jugendlichen
+Pflege von Patienten mit psychischen Problemen
+
+Wie läuft die praktische Ausbildung ab?
+Den größten Teil deiner praktischen Ausbildung absolvierst du bei deinem Ausbildungsbetrieb. Je nach Art des Ausbildungsbetriebs hast du damit in deiner Ausbildung automatisch eine bestimmte Vertiefung: 
+
+Altenheim: stationäre Langzeitpflege
+Krankenhaus: akute Langzeitpflege 
+Pflegedienst: ambulante Pflege
+Damit du aber in allen Pflegebereichen Erfahrungen sammelst, hast du zusätzlich Einsätze in anderen externen Einrichtungen. Du lernst also als Azubi im Krankenhaus auch die Arbeit beim ambulanten Pflegedienst, im Seniorenheim, in der psychiatrischen Pflege sowie die Versorgung von Kindern und Jugendlichen kennen.
+
+
+Fuli
+Tarifvertrag für Auszubildende im Öffentlichen Dienst (TVAöD Pflege)
+
+Fachweiterbildungen 
+Intensivpflege
+Notfallpflege
+Psychiatrie
+Onkologie
+Geriatrie und Rehabilitation
+
+
+
+
+
 Die Ausbildung zum Pflegefachmann dauert in Vollzeit 3 Jahre. Sie besteht aus 2 Teilen: 2100 Stunden Theorie und 2500 Stunden Praxis. 
 
 Die Zeit zwischen dem theoretischen Unterricht und der Praxis beträgt 4 bis 6 Wochen. 
