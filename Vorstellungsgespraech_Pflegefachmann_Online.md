@@ -6,7 +6,7 @@ Mein Name ist Luo Pengzhao und ich komme aus China, genauer gesagt aus Hebei, Ba
 ## Höchster Bildungsabschluss  
 Im Jahr 2022 habe ich meinen Bachelor in Geoinformatik, einem ingenieurwissenschaftlichen Fach, an der Shanghai Ocean University abgeschlossen.  Leider habe ich festgestellt, dass viele Menschen in Shanghai aufgrund von Corona und Politik ohne ausreichende Pflegeleistungen gestorben sind. Deshalb habe ich die Bedeutung von Pflege erkannt.  
 ## Berufserfahrungen  
-Bisher habe ich als Technik-Künstler in einer Spielefirma und als Geschäftsmitarbeiter gearbeitet. Als Technik-Künstler habe ich gemerkt, dass der Job nicht zu mir passt. Ich möchte nicht hauptsächlich vor dem Computer sitzen. Deshalb habe ich einen Freund unterstützt, sein Geschäft zu führen, auch wegen der Schwangerschaft seiner Frau. Gelegentlich hat mir ein anderer Freund, der sich in Deutschland auf ein Masterstudium vorbereitet, eine kurze Nachricht geschickt, dass Deutschland viele Ausbildungsplätze zum Pflegefachmann anbietet. Daher habe ich beschlossen, in meiner Freizeit selbstständig Deutsch zu lernen und in Zukunft als Pflegefachmann in Deutschland zu arbeiten.  
+Bisher habe ich als Technik-Künstler in einer Spielefirma und als Geschäftsmitarbeiter gearbeitet. Als Technik-Künstler habe ich gemerkt, dass der Job nicht zu mir passt. Ich möchte nicht hauptsächlich vor dem Computer sitzen aber gerne mit anderen kommunizieren. Deshalb habe ich einen Freund unterstützt, sein Geschäft zu führen, auch wegen der Schwangerschaft seiner Frau. Gelegentlich hat mir ein anderer Freund, der sich in Deutschland auf ein Masterstudium vorbereitet, eine kurze Nachricht geschickt, dass Deutschland viele Ausbildungsplätze zum Pflegefachmann anbietet. Daher habe ich beschlossen, in meiner Freizeit selbstständig Deutsch zu lernen und in Zukunft als Pflegefachmann in Deutschland zu arbeiten.  
 ## Sprachkenntnisse  
 Jetzt denke ich, dass ich Deutsch vor der Abreise nach Deutschland auf dem Niveau B2 erreichen kann, obwohl ich nur den Hörteil nicht bestanden habe. Darüber hinaus verfüge ich dank meines Studiums in Shanghai über Englischkenntnisse auf dem Niveau B1.  
 ## Hobbys und Interessen  
@@ -154,4 +154,4 @@ Dazu denke ich, dass Lernbereitschaft wichtig ist, zum Beispiel, wie man den Tod
 
 **Nachfrage**
 Q1:Könnten Sie mir mehr über die Rotation durch verschiedene Abteilungen während der Ausbildung erzählen?
-Q2:Wie hoch ist die Wahrscheinlichkeit, nach der Ausbildung weiterhin im Unternehmen zu arbeiten?
+Q2:
