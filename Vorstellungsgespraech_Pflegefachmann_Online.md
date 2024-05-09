@@ -13,34 +13,30 @@ Jetzt denke ich, dass ich Deutsch vor der Abreise nach Deutschland auf dem Nivea
 Mein Hobby ist es, mit Freunden Melodien zu summen und die Natur zu genießen. Dadurch könnten wir Stress abbauen und unsere Akkus aufladen.
 
 # Motivation
-[1]Die Pflege**ausbildung** und **-weiterbildung** in Deutschland gehört zur Weltspitze.   
-[2]Außerdem lege ich mehr Wert auf **Work-Life-Balance**. Um meine eigene Gesundheit zu bleiben, muss ich meine Freizeit mit meinen neuen Freunden verbringen. So kann ich meine tägliche Pflegearbeit besser erledigen.  
-[3]Wie allgemein bekannt ist, ist das **Sozialversicherungssystem** in Deutschland sehr attraktiv für diejenigen, die stabil in Deutschland arbeiten und leben möchten.  
-[4]Aus meiner Berufserfahrung kann ich sagen, dass ich die **Lebensatmosphäre in großen Städten** nicht mag. 
+## Qualität
+Die Pflege**ausbildung** in Deutschland gehört zur Weltspitze. Durch die generalistische Ausrichtung kann ich alle Pflegebereiche kennenlernen und weiß am Ende, was mir am meisten Spaß macht. 
+
+## Sinn
+Kranke Menschen gesund pflegen, alte Menschen auf dem letzten Stück ihres Lebens begleiten
+
+## Work-Life-Balance
+Außerdem lege ich mehr Wert auf **Work-Life-Balance**. Um meine eigene Gesundheit zu bleiben, muss ich meine Freizeit mit meinen neuen Freunden verbringen. So kann ich meine tägliche Pflegearbeit besser erledigen.  
+## Sozialversicherung
+Wie allgemein bekannt ist, ist das **Sozialversicherungssystem** in Deutschland sehr attraktiv für diejenigen, die stabil in Deutschland arbeiten und leben möchten.  
+## Wohnort
+Aus meiner Berufserfahrung kann ich sagen, dass ich die **Lebensatmosphäre in großen Städten** nicht mag. 
 
 # Beruf/Arbeit
-
+## Übersicht
 Im Gesundheitswesen sollte ich anspruchsvolle und abwechslungsreiche Aufgaben übernehmen
 Pflegefachleute kümmern sich um die Gesundheit und das Wohlbefinden von Menschen.
+## Bereich
 Ich möchte gerne als Pflegefachmann im Bereich der Krankenpflege in Kliniken oder Krankenhäusern arbeiten. Dort bin ich für die Betreuung und Pflege von Patienten zuständig und führe einfache medizinische Behandlungen durch.
-
+## Tätigkeiten
 Grundpflege: bei der Körperpflege, Nahrungsaufnahme sowie Einnahme von Medikamenten  
 Fachpflege: wechseln Verbände, verabreichen Infusionen auf ärztliche Anordnung  
-  
-Dokumentation der Maßnahmen und verwaltende Tätigkeiten: Diese Tätigkeit übernehmen Pflegefachleute in jedem Berufsbild, denn es ist wichtig Rück- und Fortschritte der Patienten zu überwachen und zu dokumentieren. Dafür pflegen sie die Patientenakten sorgfältig. Zu den verwaltenden Tätigkeiten gehören unter anderem die Abrechnungen von Pflegedienstleistungen oder das Nachbestellen von Materialien und Arzneimitteln.
-
-3 Gründe für die Ausbildung zum Pflegefachmann
-1. Generalistische Ausrichtung: Du lernst alle Pflegebereiche kennen und weißt am Ende, was dir am meisten Spaß macht. 
-
-2. Super Zukunftsperspektive: Pflegefachkräfte werden überall gesucht. Du hast also beste Zukunftsaussichten.
-
-3. Ein Job mit Sinn: Kranke Menschen gesund pflegen, alte Menschen auf dem letzten Stück ihres Lebens begleiten – du wählst einen Beruf mit Sinn.
-
-Wo kann ich als Pflegefachmann arbeiten?
-Als Pflegefachmann kannst du in Krankenhäusern, Kliniken, Seniorenheimen und anderen sozialen Einrichtungen Beschäftigung finden.
-
-Deine Einsatzorte auf einen Blick
-
+Dokumentation: Rück- und Fortschritte der Patienten überwachen und dokumentieren.Dafür pflege ich die Patientenakten sorgfältig.
+## Einsatzorte
 Krankenhäuser
 Kliniken
 Gesundheitszentren
@@ -48,27 +44,16 @@ Seniorenheime
 Anlagen für betreutes Wohnen
 soziale Einrichtungen
 ambulante Dienste
-
-Wie sind die Arbeitszeiten als Pflegefachfrau?
-Als Pflegefachmann oder Pflegefachfrau arbeitest du **38 bis 40 Stunden** die Woche im **Schichtdienst**, weshalb du bereit sein solltest, deinen Alltag zeitlich flexibel zu gestalten. Da Patienten rund um die Uhr auf deine Hilfe angewiesen sind, arbeitest du auch nachts, am Wochenende sowie an Feiertagen. Als Ausgleich dafür hast du dann an einem anderen Wochentag frei.
-
-Was ist eine Visite?
-Eine Pflegevisite ist der Besuch von zwei Pflegefachkräften bei einem Patienten in der Pflegeeinrichtung oder Zuhause. Bei der Visite werden die Fortschritte des Patienten festgehalten und wenn nötig, ein neuer Bedarf an Medikamenten und Pflegemaßnahmen ermittelt. Die Pflegevisite ist Teil des Qualitätsmanagements.
-
-Welche Arbeitskleidung tragen Pflegefachleute?
+## Arbeitszeiten
+Als Pflegefachmann arbeite ich **38 bis 40 Stunden** pro Woche im **Schichtdienst**, da Patienten rund um die Uhr auf Hilfe angewiesen sind, arbeite ich auch nachts, am Wochenende sowie an Feiertagen. Als Ausgleich dafür habe ich dann an einem anderen Wochentag frei.
+## Arbeitskleidung
 Im stationären Dienst tragen Pflegefachkräfte einen **Kasack** – das sind kurzärmlige Hemden mit V-Ausschnitt und Seitentaschen – sowie eine **weiße Hose** und **medizinische Schuhe**. Das sehen die Hygienevorschriften so vor.
+## Ablauf
+Die Ausbildung zum Pflegefachmann dauert **drei Jahre**. Es handelt sich um eine **schulische Ausbildung** mit praktischen Einsätzen. Theoriephasen an der Schule wechseln sich mit Praxisphasen in verschiedenen Pflegeeinrichtungen ab.
+## Lerninhalt
+In der Berufsschule lerne ich den Unterschied zwischen der stationären und der ambulanten Pflege sowie der Akut- und Langzeitpflege kennen – also einmal Menschen, die nach einem Unfall für den Zeitraum ihrer Genesung Unterstützung benötigen und dann Menschen, die für den Rest ihres Lebens auf Unterstützung angewiesen sind. 
 
-Wie läuft die Ausbildung zur Pflegefachfrau ab?
-Die Ausbildung zur Pflegefachfrau dauert **drei Jahre**. Es handelt sich um eine **schulische Ausbildung** mit praktischen Einsätzen. Theoriephasen an der Schule wechseln sich mit Praxisphasen in verschiedenen Pflegeeinrichtungen ab.
-
-**Träger der Ausbildung** können Kliniken, Krankenhäuser, Altenheime oder andere soziale Einrichtungen sein. Ob du die Ausbildung an einer Pflegeschule, einer Fachschule für Gesundheitsberufe, in einer Schule für Altenpflege oder für Krankenpflege machst, spielt bei der generalistischen Pflegeausbildung erstmal keine Rolle.
-
-Es gibt ein Ausbildungsgehalt, zu gleichen Teilen Praxis und Theorie und die Ausbildung ist bundesweit einheitlich geregelt.
-
-Was lernt eine Pflegefachfrau in der Ausbildung?
-In der Berufsschule lernst du den Unterschied zwischen der stationären und der ambulanten Pflege sowie der Akut- und Langzeitpflege kennen – also einmal Menschen, die nach einem Unfall für den Zeitraum ihrer Genesung Unterstützung benötigen und dann Menschen, die für den Rest ihres Lebens auf Unterstützung angewiesen sind. 
-
-Außerdem erfährst du, was du im Umgang mit unterschiedlichen Menschengruppen zu beachten hast, da du später mit Kindern, verletzten und kranken Menschen, Menschen mit einer psychischen Erkrankung oder Handicap sowie mit alten Menschen arbeitest. 
+Außerdem erfahre ich, was ich im Umgang mit unterschiedlichen Menschengruppen zu beachten habe, da ich später mit Kindern, verletzten und kranken Menschen, Menschen mit einer psychischen Erkrankung oder Handicap sowie mit alten Menschen arbeite. 
 
 Im Ausbildungsrahmenplan sind elf Lernfelder aufgeführt, die die Auszubildenden in insgesamt 1.900 Stunden erarbeiten.
 
