@@ -1,31 +1,32 @@
-# **Selbstvorstellung**  
-[1]Vielen Dank für die Einladung und die Chance, mich vorzustellen.  
-[2]Mein Name ist Luo Pengzhao und ich komme aus China, genauer gesagt aus Hebei, Baoding, einer Stadt nicht weit von Peking entfernt.    
-[3]Im Jahr 2022 habe ich meinen Bachelor in Geoinformatik, einem ingenieurwissenschaftlichen Fach, an der Shanghai Ocean University abgeschlossen.  Leider habe ich festgestellt, dass viele Menschen in Shanghai aufgrund von Corona und Politik ohne ausreichende Pflegeleistungen gestorben sind. Deshalb habe ich die Bedeutung von Pflege erkannt.  
-[4]Bisher habe ich als Technik-Künstler in einer Spielefirma und als Geschäftsmitarbeiter gearbeitet. Als Technik-Künstler habe ich gemerkt, dass der Job nicht zu mir passt. Ich möchte nicht hauptsächlich vor dem Computer sitzen. Deshalb habe ich einen Freund unterstützt, sein Geschäft zu führen, auch wegen der Schwangerschaft seiner Frau. Gelegentlich hat mir ein anderer Freund, der sich in Deutschland auf ein Masterstudium vorbereitet, eine kurze Nachricht geschickt, dass Deutschland viele Ausbildungsplätze zum Pflegefachmann anbietet. Daher habe ich beschlossen, in meiner Freizeit selbstständig Deutsch zu lernen und in Zukunft als Pflegefachmann in Deutschland zu arbeiten.  
-[5]Jetzt denke ich, dass ich Deutsch vor der Abreise nach Deutschland auf dem Niveau B2 erreichen kann, obwohl ich nur den Hörteil nicht bestanden habe. Darüber hinaus verfüge ich dank meines Studiums in Shanghai über Englischkenntnisse auf dem Niveau B1.  
-[6]Mein Hobby ist es, mit Freunden Melodien zu summen und die Natur zu genießen. Dadurch könnten wir Stress abbauen und unsere Akkus aufladen.
+# Selbstvorstellung 
+## Small Talk  
+Vielen Dank für die Einladung und die Chance, mich vorzustellen.  
+## Über mich  
+Mein Name ist Luo Pengzhao und ich komme aus China, genauer gesagt aus Hebei, Baoding, einer Stadt nicht weit von Peking entfernt.    
+## Höchster Bildungsabschluss  
+Im Jahr 2022 habe ich meinen Bachelor in Geoinformatik, einem ingenieurwissenschaftlichen Fach, an der Shanghai Ocean University abgeschlossen.  Leider habe ich festgestellt, dass viele Menschen in Shanghai aufgrund von Corona und Politik ohne ausreichende Pflegeleistungen gestorben sind. Deshalb habe ich die Bedeutung von Pflege erkannt.  
+## Berufserfahrungen  
+Bisher habe ich als Technik-Künstler in einer Spielefirma und als Geschäftsmitarbeiter gearbeitet. Als Technik-Künstler habe ich gemerkt, dass der Job nicht zu mir passt. Ich möchte nicht hauptsächlich vor dem Computer sitzen. Deshalb habe ich einen Freund unterstützt, sein Geschäft zu führen, auch wegen der Schwangerschaft seiner Frau. Gelegentlich hat mir ein anderer Freund, der sich in Deutschland auf ein Masterstudium vorbereitet, eine kurze Nachricht geschickt, dass Deutschland viele Ausbildungsplätze zum Pflegefachmann anbietet. Daher habe ich beschlossen, in meiner Freizeit selbstständig Deutsch zu lernen und in Zukunft als Pflegefachmann in Deutschland zu arbeiten.  
+## Sprachkenntnisse  
+Jetzt denke ich, dass ich Deutsch vor der Abreise nach Deutschland auf dem Niveau B2 erreichen kann, obwohl ich nur den Hörteil nicht bestanden habe. Darüber hinaus verfüge ich dank meines Studiums in Shanghai über Englischkenntnisse auf dem Niveau B1.  
+## Hobbys und Interessen  
+Mein Hobby ist es, mit Freunden Melodien zu summen und die Natur zu genießen. Dadurch könnten wir Stress abbauen und unsere Akkus aufladen.
 
-# **Motivation**  
+# Motivation
 [1]Die Pflege**ausbildung** und **-weiterbildung** in Deutschland gehört zur Weltspitze.   
 [2]Außerdem lege ich mehr Wert auf **Work-Life-Balance**. Um meine eigene Gesundheit zu bleiben, muss ich meine Freizeit mit meinen neuen Freunden verbringen. So kann ich meine tägliche Pflegearbeit besser erledigen.  
 [3]Wie allgemein bekannt ist, ist das **Sozialversicherungssystem** in Deutschland sehr attraktiv für diejenigen, die stabil in Deutschland arbeiten und leben möchten.  
-[4]Aus meiner Berufserfahrung kann ich sagen, dass ich die **Lebensatmosphäre** und das **Arbeitstempo** **in großen Städten** nicht mag. 
+[4]Aus meiner Berufserfahrung kann ich sagen, dass ich die **Lebensatmosphäre in großen Städten** nicht mag. 
 
-**Ausbildung zum Pflegefachmann**
-nach der Geburt, im Kindesalter, aufgrund einer Erkrankung, bei einer Verletzung oder im hohen Alter
-Im Gesundheitswesen kannst du anspruchsvolle und abwechslungsreiche Aufgaben übernehmen
-Pflegefachleute kümmern sich um die Gesundheit und das Wohlbefinden von Menschen. Sie unterstützen beispielsweise bei der Körperpflege, verabreichen Medikamente und führen Pflegeberichte. 
-Je nach Spezialisierung übernehmen Pflegefachleute Aufgaben aus verschiedenen Pflegebereichen:
+# Beruf/Arbeit
 
-Altenpflege
-Krankenpflege
-Kinderkrankenpflege
-Heilerziehungspflege
-Da die Ausbildung zum Pflegefachmann oder zur Pflegefachfrau eine gebündelte Pflegeausbildung ist, können Pflegefachkräfte später in verschiedenen Pflegeberufen eingesetzt werden, weshalb die späteren Tätigkeiten variieren können.
-Altenpflege: In Seniorenheimen oder Wohnanlagen für betreutes Wohnen kümmern sich Pflegefachleute um Senioren und helfen bei der Bewältigung ihres Alltags. Sie unterstützen sie bei der Körperpflege, bei der Nahrungsaufnahme sowie bei der Einnahme von Medikamenten.  
-(Kinder-)Krankenpflege: Im Bereich der (Kinder)Krankenpflege arbeiten Pflegefachmänner in Kliniken oder Krankenhäusern. Dort sind sie für die Betreuung und Pflege von Patienten zuständig und führen einfache medizinische Behandlungen durch – sie wechseln zum Beispiel Verbände oder verabreichen Infusionen auf ärztliche Anordnung.  
-Heilerziehungspflege: In der Heilerziehungspfleger Ausbildung dreht sich der Alltag um die Arbeit mit Menschen mit einer Behinderung. Neben der Pflegetätigkeit geht es vor allem darum, Menschen mit einem Handicap zu fördern, damit sie ihre Selbstständigkeit bewahren können.  
+Im Gesundheitswesen sollte ich anspruchsvolle und abwechslungsreiche Aufgaben übernehmen
+Pflegefachleute kümmern sich um die Gesundheit und das Wohlbefinden von Menschen.
+Ich möchte gerne als Pflegefachmann im Bereich der Krankenpflege in Kliniken oder Krankenhäusern arbeiten. Dort bin ich für die Betreuung und Pflege von Patienten zuständig und führe einfache medizinische Behandlungen durch.
+
+Grundpflege: bei der Körperpflege, Nahrungsaufnahme sowie Einnahme von Medikamenten  
+Fachpflege: wechseln Verbände, verabreichen Infusionen auf ärztliche Anordnung  
+  
 Dokumentation der Maßnahmen und verwaltende Tätigkeiten: Diese Tätigkeit übernehmen Pflegefachleute in jedem Berufsbild, denn es ist wichtig Rück- und Fortschritte der Patienten zu überwachen und zu dokumentieren. Dafür pflegen sie die Patientenakten sorgfältig. Zu den verwaltenden Tätigkeiten gehören unter anderem die Abrechnungen von Pflegedienstleistungen oder das Nachbestellen von Materialien und Arzneimitteln.
 
 3 Gründe für die Ausbildung zum Pflegefachmann
