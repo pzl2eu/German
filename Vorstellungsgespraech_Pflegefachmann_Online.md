@@ -128,5 +128,5 @@ Meine Deutsch-Hör- und Sprechfähigkeiten sind noch nicht gut genug. Ich denke,
 Ich arbeite manchmal zu viel und vergesse dabei meine Gesundheit und mein Privatleben. Aber ich habe erkannt, dass das nicht gut ist. Jetzt versuche ich, einen besseren Ausgleich zwischen Arbeit und Freizeit zu finden. Zum Beispiel plane ich meine Arbeit besser und mache regelmäßig Sport und treffe Freunde, um gesund zu bleiben.
 
 # Nachfrage
-Q1:Könnten Sie mir mehr über die Rotation durch verschiedene Abteilungen während der Ausbildung erzählen?
+Q1:Könnten Sie mir mehr über die Rotation durch verschiedene Abteilungen während der Ausbildung erzählen?  
 Q2:
