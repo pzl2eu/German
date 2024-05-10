@@ -28,14 +28,19 @@ Aus meiner Berufserfahrung kann ich sagen, dass ich die **Lebensatmosphäre in g
 
 # Beruf/Arbeit
 ## Übersicht
-Im Gesundheitswesen sollte ich anspruchsvolle und abwechslungsreiche Aufgaben übernehmen
-Pflegefachleute kümmern sich um die Gesundheit und das Wohlbefinden von Menschen.
+Die Ausbildung zum Pflegefachmann dauert in Vollzeit **drei Jahre**. Sie besteht aus 2 Teilen: 2100 Stunden Theorie und 2500 Stunden Praxis. Theoriephasen an der Schule wechseln sich mit Praxisphasen in verschiedenen Pflegeeinrichtungen 4 bis 6 Wochen ab. Nach Abschluss der Ausbildung legt man die staatliche Prüfung zum Pflegefachmann ab.
+Je nach Art des Ausbildungsbetriebs habe ich damit in meiner Ausbildung automatisch eine bestimmte Vertiefung: 
+Altenheim: stationäre Pflege
+Krankenhaus: akute Pflege 
+Pflegedienst: ambulante Pflege
+
 ## Bereich
 Ich möchte gerne als Pflegefachmann im Bereich der Krankenpflege in Kliniken oder Krankenhäusern arbeiten. Dort bin ich für die Betreuung und Pflege von Patienten zuständig und führe einfache medizinische Behandlungen durch.
 ## Tätigkeiten
 Grundpflege: bei der Körperpflege, Nahrungsaufnahme sowie Einnahme von Medikamenten  
 Fachpflege: wechseln Verbände, verabreichen Infusionen auf ärztliche Anordnung  
 Dokumentation: Rück- und Fortschritte der Patienten überwachen und dokumentieren.Dafür pflege ich die Patientenakten sorgfältig.
+Kommunication mit Ärzten, Patienten und ihren Familien.
 ## Einsatzorte
 Krankenhäuser
 Kliniken
@@ -48,8 +53,6 @@ ambulante Dienste
 Als Pflegefachmann arbeite ich **38 bis 40 Stunden** pro Woche im **Schichtdienst**, da Patienten rund um die Uhr auf Hilfe angewiesen sind, arbeite ich auch nachts, am Wochenende sowie an Feiertagen. Als Ausgleich dafür habe ich dann an einem anderen Wochentag frei.
 ## Arbeitskleidung
 Im stationären Dienst tragen Pflegefachkräfte einen **Kasack** – das sind kurzärmlige Hemden mit V-Ausschnitt und Seitentaschen – sowie eine **weiße Hose** und **medizinische Schuhe**. Das sehen die Hygienevorschriften so vor.
-## Ablauf
-Die Ausbildung zum Pflegefachmann dauert **drei Jahre**. Es handelt sich um eine **schulische Ausbildung** mit praktischen Einsätzen. Theoriephasen an der Schule wechseln sich mit Praxisphasen in verschiedenen Pflegeeinrichtungen ab.
 ## Lerninhalt
 In der Berufsschule lerne ich den Unterschied zwischen der stationären und der ambulanten Pflege sowie der Akut- und Langzeitpflege kennen – also einmal Menschen, die nach einem Unfall für den Zeitraum ihrer Genesung Unterstützung benötigen und dann Menschen, die für den Rest ihres Lebens auf Unterstützung angewiesen sind. 
 
@@ -69,89 +72,61 @@ Unterstützung der Patienten bei der Lebensgestaltung
 Pflege von Kindern und Jugendlichen
 Pflege von Patienten mit psychischen Problemen
 
-Wie läuft die praktische Ausbildung ab?
-Den größten Teil deiner praktischen Ausbildung absolvierst du bei deinem Ausbildungsbetrieb. Je nach Art des Ausbildungsbetriebs hast du damit in deiner Ausbildung automatisch eine bestimmte Vertiefung: 
 
-Altenheim: stationäre Langzeitpflege
-Krankenhaus: akute Langzeitpflege 
-Pflegedienst: ambulante Pflege
-Damit du aber in allen Pflegebereichen Erfahrungen sammelst, hast du zusätzlich Einsätze in anderen externen Einrichtungen. Du lernst also als Azubi im Krankenhaus auch die Arbeit beim ambulanten Pflegedienst, im Seniorenheim, in der psychiatrischen Pflege sowie die Versorgung von Kindern und Jugendlichen kennen.
-
-
-Fuli
-Tarifvertrag für Auszubildende im Öffentlichen Dienst (TVAöD Pflege)
-
-Fachweiterbildungen 
+## Fachweiterbildungen 
 Intensivpflege
 Notfallpflege
 Psychiatrie
 Onkologie
 Geriatrie und Rehabilitation
 
+## Unternehmen/Kultur/Produkte
 
 
 
+## Team  
+Ich glaube, ein Team ist wie ein Spiegel, der mir hilft, mich selbst in der Arbeit klarer zu sehen. Wir machen oft unbewusst Fehler, ohne sie zu bemerken. Mitarbeiter können mir helfen, sodass ich mich selbst verbessern und dann Wert für das Team schaffen kann.
 
-Die Ausbildung zum Pflegefachmann dauert in Vollzeit 3 Jahre. Sie besteht aus 2 Teilen: 2100 Stunden Theorie und 2500 Stunden Praxis. 
+## Abteilung  
+Ich habe keine tiefe Kenntnisse über die verschiedenen Abteilungen in deutschen Krankenhäusern. 
+Anfangs werde ich die Abteilungen flexibel nach den Bedürfnissen des Krankenhauses einrichten,
+später könnte ich dazu neigen, in einer bestimmten Abteilung zu arbeiten. Unabhängig von der Abteilung, in der ich arbeite, werde ich immer verantwortungsvoll arbeiten und hochwertige Pflegedienstleistungen anbieten.
 
-Die Zeit zwischen dem theoretischen Unterricht und der Praxis beträgt 4 bis 6 Wochen. 
+## Erfahrungen 
+Ich habe keine relevante Erfarhungen. Nach üblichem Verständnis ist Kommunikation in der Pflege unerlässlich, man muss ständig auf die Bedürfnisse der Patienten achten und diese erfüllen.
 
-Der theoretische Unterricht findet an einer Pflegeschule statt, während die Praxis in Krankenhäusern, stationären Pflegeeinrichtungen und ambulanten Pflegeeinrichtungen absolviert wird. Nach Abschluss der Ausbildung legt man die staatliche Prüfung zum Pflegefachmann ab.
+## Umgang mit Stress 
+klare Prioritäten setzen  
+Meditation
+Wenn ich ein Problem nicht lösen kann, werde ich Hilfe von erfahrenen Kollegen und Vorgesetzten suchen.
 
-**Unternehmen/Kultur/Produkte**
+## Belastung
+Aus meiner Sicht gibt es 2 Belastungen: körperlich und seelisch.
+Körperlich gesehen, ist es nicht einfach, jeden Tag lange Stunden zu stehen und Nachtschicht zu machen. Und bei der Arbeit besteht auch das Risiko einer Infektion.
+Seelisch gesehen, macht mich sogar der Tod von Fremden traurig, weil ich eine Person mit großer Sympathie bin.
+## Erwartungen
+Deutsch C1 erreichen  
+eigenen Freundeskreis aufbauen  
+Ich würde gerne, nach der Ausbildung als Pflegefachmann in der Firma arbeiten, wenn alles gut läuft. 
 
-**Tätigkeiten**  
-Kommunication mit Ärzten, Patienten und ihren Familien.  
-Grundpflege: Blutdruck messen, füttern, sich Körper reinigen  
-Fachpflege: Medikamente und Injektionen geben  
+# Erfolge
+## Selbstständig Deutsch lernen
+Als Lerner des VHS-Lernportals, einer kostenlosen Plattform aus Deutschland, möchte ich mich für die Entwicklung bedanken. Das Portal bietet nicht nur Alltagsdeutsch bis zum Niveau B1, sondern auch einen beruflichen B2-Deutschkurs. Um meine Ausbildung besser zu beginnen, lerne ich jeden Tag diesen Kurs.
+Außerdem gibt es ein Online-Seminar aus Österreich zum selbstständigen Deutschlernen. Dort habe ich die Möglichkeit, mit anderen Sprechen zu üben.
+Es gibt eine Discord-Community namens GLAD. Diese hat ungefähr zehntausend aktive Mitglieder online. Wenn ich ein ungelöstes Problem habe, kann ich es entweder im Frage-Forum posten oder direkt im Textkanal auf Englisch anfragen. Auf diese Weise erhalte ich zeitnah viele Rückmeldungen aus der ganzen Welt. Nachdem ich die B1-Prüfung bestanden habe, biete ich auch anderen Mitgliedern Hilfe an. Das finde ich großartig!
+Chatbot liefert mir jederzeit überall außerdem viele hilfreiche Informationen zum Deutschlernen.
 
+# Q&A
 Q:Wie definieren Sie **Erfolg** für diese Stelle?
 A:Basierend auf der Liebe kümmern wir uns um die Gesundheit der Patienten.
 
 Q:Was ist aus Ihrer Sicht der Teil des Jobs, der am meisten **frustrieren** könnte?
 A:Wenn der Patient während der Behandlung Schmerzen erleidet und sogar der Tod eintritt.
 
-**Team**  
-Ich glaube, ein Team ist wie ein Spiegel, der mir hilft, mich selbst in der Arbeit klarer zu sehen. Wir machen oft unbewusst Fehler, ohne sie zu bemerken. Mitglieder können mir helfen, sodass ich mich selbst verbessern und dann Wert für das Team schaffen kann.
+Q:Was sind Ihre grösste **Schächen**? 
+Meine Deutsch-Hör- und Sprechfähigkeiten sind noch nicht gut genug. Ich denke, dass ich sie schneller verbessern könnte, wenn ich in Deutschland leben würde.  
+Ich arbeite manchmal zu viel und vergesse dabei meine Gesundheit und mein Privatleben. Aber ich habe erkannt, dass das nicht gut ist. Jetzt versuche ich, einen besseren Ausgleich zwischen Arbeit und Freizeit zu finden. Zum Beispiel plane ich meine Arbeit besser und mache regelmäßig Sport und treffe Freunde, um gesund zu bleiben.
 
-**Abteilung**  
-Ich habe keine tiefe Kenntnisse über die verschiedenen Abteilungen in deutschen Krankenhäusern. 
-
-Anfangs werde ich die Abteilungen flexibel nach den Bedürfnissen des Krankenhauses einrichten,
-
-später könnte ich dazu neigen, in einer bestimmten Abteilung zu arbeiten. Unabhängig von der Abteilung, in der ich arbeite, werde ich immer sorgfältig arbeiten und hochwertige Pflegedienstleistungen anbieten.
-
-**Weiterbildung**  
-Psychische Gesundheitspflege
-
-**Erfahrung**  
-Ich habe keine Erfarhung. Nach meinem Verständnis ist Kommunikation in der Pflege unerlässlich, man muss ständig auf die Bedürfnisse der Patienten achten und diese erfüllen.
-
-**Umgang mit Stress**  
-klare Prioritäten setzen  
-Meditation
-Mit anderen austauschen???
-
-**Während und nach der Ausbildung**  
-Deutsch C1 erreichen  
-eigenen Freundeskreis aufbauen  
-Ich würde gerne, nach der Ausbildung als Pflegefachmann in der Firma arbeiten, wenn alles gut läuft. 
-
-**Was sind Ihre grösste Schächen?**  
-Meine Deutsch-Hör- und Sprechfähigkeiten sind noch nicht gut genug. Ich denke, dass ich sie schneller verbessern könnte, wenn ich in Deutschland leben würde.
-
-**Deutschlern/Lernfähigkeit/Erfolg**  
-Als Lerner des VHS-Lernportals, einer kostenlosen Plattform aus Deutschland, möchte ich mich für die Entwicklung bedanken. Das Portal bietet nicht nur Alltagsdeutsch bis zum Niveau B1, sondern auch einen beruflichen B2-Deutschkurs. Um meine Ausbildung besser zu beginnen, lerne ich jeden Tag diesen Kurs.
-Außerdem gibt es ein Online-Seminar aus Österreich zum selbstständigen Deutschlernen. Dort habe ich die Möglichkeit, mit anderen Sprechen zu üben.
-Es gibt eine Discord-Community namens GLAD. Diese hat ungefähr zehntausend aktive Mitglieder online. Wenn ich ein ungelöstes Problem habe, kann ich es entweder im Frage-Forum posten oder direkt im Textkanal auf Englisch anfragen. Auf diese Weise erhalte ich zeitnah viele Rückmeldungen aus der ganzen Welt. Nachdem ich die B1-Prüfung bestanden habe, biete ich auch anderen Mitgliedern Hilfe an. Das finde ich großartig!
-Chatbot liefert mir außerdem viele hilfreiche Informationen zum Deutschlernen.
-
-**Belastung**  
-Aus meiner Sicht gibt es 2 Belastungen: körperlich und seelisch.
-Körperlich gesehen, ist es nicht einfach, jeden Tag lange Stunden zu stehen und Nachtschicht zu machen. Und bei der Arbeit besteht auch das Risiko einer Infektion.
-Seelisch gesehen, macht mich sogar der Tod von Fremden traurig, weil ich eine Person mit großer Empathie bin.
-Dazu denke ich, dass Lernbereitschaft wichtig ist, zum Beispiel, wie man den Tod von Patienten betrachtet und mit anderen Problemen umgeht, die in Zukunft auftreten könnten.
-
-**Nachfrage**
+# Nachfrage
 Q1:Könnten Sie mir mehr über die Rotation durch verschiedene Abteilungen während der Ausbildung erzählen?
 Q2:
