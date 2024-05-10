@@ -96,7 +96,8 @@ später könnte ich dazu neigen, in einer bestimmten Abteilung zu arbeiten. Unab
 Ich habe keine relevante Erfarhungen. Nach üblichem Verständnis ist Kommunikation in der Pflege unerlässlich, man muss ständig auf die Bedürfnisse der Patienten achten und diese erfüllen.
 
 ## Umgang mit Stress 
-klare Prioritäten setzen  
+klare Prioritäten setzen
+grosse Ziele in kleinere Schritte zerlegen
 Meditation
 Wenn ich ein Problem nicht lösen kann, werde ich Hilfe von erfahrenen Kollegen und Vorgesetzten suchen.
 
