@@ -1,6 +1,6 @@
 # Selbstvorstellung 
 ## Small Talk  
-Vielen Dank für die Einladung und die Chance, mich vorzustellen.  
+Vielen Dank für die Einladung, mich vorzustellen.  
 ## Über mich  
 Mein Name ist Luo Pengzhao und ich komme aus China, genauer gesagt aus Hebei, Baoding, einer Stadt nicht weit von Peking entfernt.    
 ## Höchster Bildungsabschluss  
