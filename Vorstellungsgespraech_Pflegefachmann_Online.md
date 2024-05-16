@@ -82,20 +82,14 @@ Anfangs werde ich die Abteilungen flexibel nach den Bedürfnissen des Krankenhau
 später könnte ich dazu neigen, in einer bestimmten Abteilung zu arbeiten. Unabhängig von der Abteilung, in der ich arbeite, werde ich immer verantwortungsvoll arbeiten und hochwertige Pflegedienstleistungen anbieten.
 
 ## Umgang mit Stress 
-klare Prioritäten setzen
-grosse Ziele in kleinere Schritte zerlegen
-Meditation
-Wenn ich ein Problem nicht lösen kann, werde ich Hilfe von erfahrenen Kollegen und Vorgesetzten suchen.
+Um Stress zu abbauen, setze ich klare Prioritäten und zerlege ich grosse Ziele in kleinere Schritte. In ruhezeit nehme ich Meditation. Wenn ich selbst ein Problem nicht lösen kann, werde ich Hilfe von erfahrenen Kollegen und Vorgesetzten suchen.
 
 ## Herausforderungen
-Wenn der Patient während der Behandlung Schmerzen erleidet und sogar der Tod eintritt.
 Aus meiner Sicht gibt es 2 Belastungen: körperlich und seelisch.
-Körperlich gesehen, ist es nicht einfach, jeden Tag lange Stunden zu stehen und Nachtschicht zu machen. Und bei der Arbeit besteht auch das Risiko einer Infektion.
-Seelisch gesehen, macht mich sogar der Tod von Fremden traurig, weil ich eine Person mit großer Sympathie bin.
+Körperlich gesehen, ist es nicht einfach, jeden Tag lange Stunden zu stehen und oft Nachtschicht zu machen. Und bei der Arbeit besteht auch das Risiko einer Infektion.
+Seelisch gesehen, macht mich sogar der Tod von Patienten traurig, weil ich eine Person mit großer Sympathie bin.
 ## Erwartungen
-Deutsch C1 erreichen  
-eigenen Freundeskreis aufbauen  
-Ich würde gerne, nach der Ausbildung als Pflegefachmann in der Firma arbeiten, wenn alles gut läuft. 
+Als Erstes möchte ich die Ausbildung erfolgreich abschlissen.während dieser Ausbildung kann ich eigenen Freundeskreis aufbauen und Deutsch C1 erreichen. Nach der Ausbildung würde ich gerne als Pflegefachmann in der Firma in Vollzeit arbeiten, wenn alles gut läuft. 
 # Erfolge
 ## Selbstständig Deutsch lernen
 Als Lerner des VHS-Lernportals, einer kostenlosen Plattform aus Deutschland, möchte ich mich für die Entwicklung bedanken. Das Portal bietet nicht nur Alltagsdeutsch bis zum Niveau B1, sondern auch einen beruflichen B2-Deutschkurs. Um meine Ausbildung besser zu beginnen, lerne ich jeden Tag diesen Kurs.
