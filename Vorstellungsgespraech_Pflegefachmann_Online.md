@@ -97,4 +97,4 @@ Diese Frage soll Einblicke in die Problemlösungsfähigkeiten, Konfliktlösungsk
 Durch diese Frage möchte der Arbeitgeber mehr über die langfristigen beruflichen Ziele und Ambitionen des Bewerbers erfahren. Sie ermöglicht es dem Arbeitgeber, einzuschätzen, ob der Bewerber langfristig in das Unternehmen passen und sich weiterentwickeln könnte, und ob seine Ziele mit den Entwicklungsmöglichkeiten innerhalb des Unternehmens übereinstimmen.
 # Nachfrage
 Q1:Könnten Sie mir mehr über die Rotation durch verschiedene Abteilungen während der Ausbildung erzählen?  
-Q2:
+Q2:Ich möchte wissen, wie die Pausenzeit für die Mitarbeiter im Krankenhaus geplant wird.
