@@ -70,7 +70,7 @@ Seelisch gesehen, macht mich sogar der Tod von Patienten traurig, weil ich eine 
 Als Erstes möchte ich die Ausbildung erfolgreich abschließen. Während dieser Ausbildung kann ich mir einen eigenen Freundeskreis aufbauen und Deutsch C1 erreichen. Nach der Ausbildung würde ich gerne als Pflegefachmann in Vollzeit in der Firma arbeiten, wenn alles gut läuft. 
 # Erfolge
 ## Selbstständig Deutsch lernen
-Als Lerner des VHS-Lernportals, einer kostenlosen Plattform aus Deutschland, möchte ich mich für die Entwicklung bedanken. Das Portal bietet nicht nur Alltagsdeutsch bis zum Niveau B1, sondern auch einen beruflichen B2-Deutschkurs. Um meine Ausbildung besser zu beginnen, lerne ich jede Woche diesen Kurs.  
+Als Lerner des VHS-Lernportals, einer kostenlosen Plattform aus Deutschland, möchte ich mich für die Entwicklung bedanken. Das Portal bietet nicht nur Alltagsdeutsch bis zum Niveau B1, sondern auch einen beruflichen B2-Deutschkurs.  
 Außerdem gibt es ein Online-Seminar aus Österreich zum selbstständigen Deutschlernen. Dort habe ich neben den Lerninhalten auch die Möglichkeit, mit anderen zu sprechen.   
 Wenn ich ein spezifisches Problem habe, wende ich mich an meine Lernpartner und den Chatbot. Wenn wir es nicht lösen können, frage ich auf der Discord-Community GLAD auf Englisch nach. Dort sind ungefähr zehntausend aktive Mitglieder online. Auf diese Weise erhalte ich zeitnah viele Rückmeldungen aus der ganzen Welt. Nachdem ich die B1-Prüfung bestanden habe, biete ich auch anderen Mitgliedern Hilfe an. Das finde ich großartig!
 # Die häufigsten Fragen während eines Vorstellungsgesprächs
