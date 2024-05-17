@@ -32,7 +32,7 @@ Die Ausbildung zum Pflegefachmann dauert in Vollzeit **drei Jahre**. Sie besteht
 ## Tätigkeiten
 Grundpflege: bei der Körperpflege, Nahrungsaufnahme sowie Einnahme von Medikamenten  
 Fachpflege: wechseln Verbände, verabreichen Infusionen auf ärztliche Anordnung  
-Rück- und Fortschritte der Patienten überwachen und **dokumentieren**
+Rück- und Fortschritte der Patienten überwachen und **dokumentieren**  
 mit Ärzten, Patienten und ihren Familien **effektive kommunizieren** 
 ## Einsatzorte
 Krankenhäuser
