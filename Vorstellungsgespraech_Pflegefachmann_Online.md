@@ -12,7 +12,7 @@ Also habe ich damit begonnen, die Voraussetzungen für den Beruf des Pflegefachm
 Ein anderer Freund von mir, der sich in Deutschland auf ein Masterstudium in Bielefeld vorbereitet, hat mir gelegentlich eine kurze Nachricht geschickt und erwähnt, dass es in Deutschland viele Ausbildungsplätze für Pflegefachleute gibt. Deshalb habe ich beschlossen, in meiner Freizeit Deutsch zu lernen, um meine Chancen zu erhöhen, in Zukunft als Pflegefachmann in Deutschland zu arbeiten.  
 Bis jetzt habe ich noch keine Erfahrungen im Pflegebereich gesammelt. Ich habe jedoch bereits viele Informationen über den Pflegeberuf erkundet. Meines Verständnisses nach ist Kommunikation in der Pflege unerlässlich. Man muss ständig die Bedürfnisse der Patienten im Auge behalten und darauf eingehen.
 ## Sprachkenntnisse  
-Nun habe ich das Goethe-Zertifikat B1 erworben und Teile Sprechen, Lesen und Schreiben des Niveaus B2 bestanden. Darüber hinaus verfüge ich aufgrund meines Studiums in Shanghai über Englischkenntnisse auf ungefähr B1-Niveau. 
+Nun habe ich das Goethe-Zertifikat B1 erworben und Teile Sprechen, Lesen und Schreiben des Niveaus B2 bestanden. Darüber hinaus verfüge ich über Englischkenntnisse auf ungefähr B1-Niveau. 
 ## Hobbys und Interessen  
 Mein Hobby ist es, mit Freunden Melodien zu summen und die Natur zu genießen. Dadurch könnten wir Stress abbauen und unsere Akkus aufladen.
 # Stärken & Schwächen
