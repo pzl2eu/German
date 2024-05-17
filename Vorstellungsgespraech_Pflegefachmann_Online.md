@@ -59,8 +59,7 @@ Geriatrie und Rehabilitation
 Ich glaube, ein Team ist wie ein Spiegel, der mir hilft, mich selbst in der Arbeit klarer zu sehen. Wir machen oft unbewusst Fehler, ohne sie zu bemerken. Mitarbeiter können mir helfen, sodass ich mich selbst verbessern und dann Wert für das Team schaffen kann.
 ## Abteilung  
 Ich habe keine tiefe Kenntnisse über die verschiedenen Abteilungen in deutschen Krankenhäusern. 
-Anfangs werde ich die Abteilungen flexibel nach den Bedürfnissen des Krankenhauses einrichten,
-später könnte ich dazu neigen, in einer bestimmten Abteilung zu arbeiten. Unabhängig von der Abteilung, in der ich arbeite, werde ich immer verantwortungsvoll arbeiten und hochwertige Pflegedienstleistungen anbieten.
+Anfangs werde ich flexibel in der angegebenen Abteilung gemäß den Bedürfnissen des Krankenhauses arbeiten, später könnte ich dazu neigen, in einer bestimmten Abteilung zu arbeiten. Unabhängig von der Abteilung werde ich immer verantwortungsvoll arbeiten und hochwertige Pflegedienstleistungen anbieten.
 ## Umgang mit Stress 
 Um Stress abzubauen, setze ich klare Prioritäten und zerlege große Ziele in kleinere Schritte. Während der Pause praktiziere ich Meditation. Wenn ich ein Problem nicht selbst lösen kann, suche ich Hilfe bei erfahrenen Kollegen und Vorgesetzten.
 ## Herausforderungen
