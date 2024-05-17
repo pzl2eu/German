@@ -22,7 +22,7 @@ Die Pflegeausbildung in Deutschland gehört zur Weltspitze. Dadurch kann man nic
 ## Sinn
 Basierend auf der Liebe kümmern wir uns um die Gesundheit der Patienten. Kranke Menschen gesund pflegen, alte Menschen auf dem letzten Stück ihres Lebens begleiten.
 ## Work-Life-Balance
-Außerdem lege ich mehr Wert auf Work-Life-Balance. Aus meiner Berufserfahrung kann ich sagen, dass ich große Städte aus Umweltsicht nicht mag. Ich schätze Ruhe, Natur und frische Luft am meisten. Um gesund zu bleiben, verbringe ich meine Freizeit gerne mit meinen neuen Freunden. Dadurch kann ich meine tägliche Pflegearbeit besser erledigen.  
+Außerdem lege ich mehr Wert auf Work-Life-Balance. Aus meiner Berufserfahrung kann ich sagen, dass ich Städte, besonders gross Städte, in China nicht mag. Ich schätze Ruhe, Natur und frische Luft am meisten. Um gesund zu bleiben, verbringe ich meine Freizeit gerne mit meinen neuen Freunden. Dadurch kann ich meine tägliche Pflegearbeit besser erledigen.  
 ## Sozialversicherung
 Wie allgemein bekannt ist, ist das **Sozialversicherungssystem** in Deutschland sehr attraktiv für diejenigen, die stabil in Deutschland arbeiten und leben möchten.  
 # Beruf/Arbeit
