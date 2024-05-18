@@ -8,7 +8,7 @@ Im Jahr 2022 habe ich meinen Bachelor in **Geoinformatik**, einem ingenieurwisse
 ## Berufserfahrungen  
 Bisher habe ich als Technik-Künstler und als Geschäftsmitarbeiter gearbeitet. Ich habe jedoch festgestellt, dass dieser Job nicht zu meiner Persönlichkeit passt. Obwohl er viel Geld einbringen könnte, möchte ich lieber eine körperlich anspruchsvollere Stelle suchen, bei der ich mit anderen kommunizieren kann, anstatt lange Stunden im Büro vor dem Computer zu sitzen. Also habe ich beschlossen, mich beruflich neu zu orientieren.  
 Dann wurde die Frau meines Freundes zufällig schwanger, und da im Laden Personal fehlte, habe ich ausgeholfen, um etwas Geld zu verdienen. Also habe ich damit begonnen, in meiner Freizeit die Voraussetzungen für den Beruf des Pflegefachmanns in China zu recherchieren. Dabei habe ich festgestellt, dass die meisten Pflegeeinrichtungen mindestens einen Bachelor-Abschluss verlangen, weil da es jedes Jahr immer viele Absolventen und nicht mehr neue Arbeitsplätze gibt.  
-Ein anderer Freund von mir, der sich in Deutschland auf ein Masterstudium in Bielefeld vorbereitet, hat mir gelegentlich eine kurze Nachricht geschickt und erwähnt, dass es in Deutschland viele Ausbildungsplätze für Pflegefachleute gibt. Deshalb habe ich beschlossen, in meiner Freizeit Deutsch zu lernen, um meine Chancen zu erhöhen, in Zukunft als Pflegefachmann in Deutschland zu arbeiten.  
+Ein anderer Freund von mir, der sich in Deutschland auf ein Masterstudium in Uni Bielefeld vorbereitet, hat mir gelegentlich eine kurze Nachricht geschickt und erwähnt, dass es in Deutschland viele Ausbildungsplätze für Pflegefachleute gibt. Aus diesem Grund habe ich entschieden, mich in meiner Freizeit Deutsch bemühne zu lernen, um meine Chancen zu erhöhen, in Zukunft als Pflegefachmann in Deutschland zu arbeiten.  
 Bis jetzt habe ich noch keine Erfahrungen im Pflegebereich gesammelt. Ich habe jedoch bereits viele Informationen über die Ausbildung zum Pflegefachmann erkundet. Meines Verständnisses nach ist Kommunikation in der Pflege unerlässlich. Man muss ständig die Bedürfnisse der Patienten im Auge behalten und darauf eingehen.
 ## Sprachkenntnisse  
 Nun habe ich das Goethe-Zertifikat B1 erworben und Teile Sprechen, Lesen und Schreiben des Niveaus B2 bestanden. Darüber hinaus verfüge ich über Englischkenntnisse auf ungefähr B1-Niveau. 
@@ -18,7 +18,7 @@ Mein Hobby ist es, mit Freunden Melodien zu summen und die Natur zu genießen. D
 Ich bin **aufgeschlossen** und überzeugt, dass viele Dinge nicht durch Ursache-Wirkungs-Beziehung bedacht werden können. Ich bin **lernbereit**. Deutsch ist meine zweite Fremdsprache. Ich möchte ständig meine Deutschkenntnisse durch verschiedene Methoden verbessern. Außerdem möchte ich etwas Neues entdecken. Manchmal bin ich **selbstkritisch**. Zum Beispiel muss ich jeden Tag bestimmte Ziele beim Deutschlernen erreichen, ansonsten schlafe ich später ein. Jetzt habe ich erkannt, dass Nachhaltigkeit, also meine eigene Gesundheit, für langfristige Ziele besser ist.
 # Motivation
 ## Qualität
-Die Pflegeausbildung in Deutschland gehört zur Weltspitze. Dadurch kann man nicht nur Berufserfahrung sammeln, sondern auch einige Vergütungen erhalten, um den eigenen Alltag zu finanzieren. Durch die generalistische Ausrichtung kann man auch alle Pflegebereiche kennenlernen: Altenheim (stationäre Pflege), Krankenhaus (akute Pflege) und Pflegedienst (ambulante Pflege). Am Ende weiß man dann, was einem am meisten passt.
+Die Pflegeausbildung in **Deutschland** gehört zur Weltspitze. Dadurch kann man nicht nur **Berufserfahrung sammeln**, sondern auch einige **Vergütungen erhalten**, um den eigenen Alltag zu finanzieren.
 ## Sinn
 Basierend auf der Liebe kümmern wir uns um die Gesundheit der Patienten. Kranke Menschen gesund pflegen, alte Menschen auf dem letzten Stück ihres Lebens begleiten.
 ## Work-Life-Balance
@@ -27,7 +27,7 @@ Außerdem lege ich mehr Wert auf Work-Life-Balance. Aus meiner Berufserfahrung k
 Wie allgemein bekannt ist, ist das **Sozialversicherungssystem** in Deutschland sehr attraktiv für diejenigen, die stabil in Deutschland arbeiten und leben möchten.  
 # Beruf/Arbeit
 ## Übersicht
-Die Ausbildung zum Pflegefachmann dauert in Vollzeit **drei Jahre**. Sie besteht aus 2 Teilen: 2100 Stunden Theorie und 2500 Stunden Praxis. Theoriephasen an der Schule wechseln sich mit Praxisphasen in verschiedenen Pflegeeinrichtungen 4 bis 6 Wochen ab. Nach Abschluss der Ausbildung legt man die staatliche Prüfung zum Pflegefachmann ab.
+Die Ausbildung zum Pflegefachmann dauert in Vollzeit **drei Jahre**. Sie besteht aus 2 Teilen: 2100 Stunden **Theorie** und 2500 Stunden **Praxis**. Theoriephasen an der Schule wechseln sich mit Praxisphasen in verschiedenen Pflegeeinrichtungen 4 bis 6 Wochen ab. Durch die generalistische Ausrichtung kann man auch alle Pflegebereiche kennenlernen: Altenheim (stationäre Pflege), Krankenhaus (akute Pflege) und Pflegedienst (ambulante Pflege). Nach Abschluss der Ausbildung legt man die staatliche Prüfung zum Pflegefachmann ab.
 ## Tätigkeiten
 Grundpflege: bei der Körperpflege, Nahrungsaufnahme sowie Einnahme von Medikamenten  
 Fachpflege: wechseln Verbände, verabreichen Infusionen auf ärztliche Anordnung  
@@ -85,5 +85,5 @@ Diese Frage soll Einblicke in die Problemlösungsfähigkeiten, Konfliktlösungsk
 ## Wo sehen Sie sich in fünf Jahren beruflich?
 Durch diese Frage möchte der Arbeitgeber mehr über die langfristigen beruflichen Ziele und Ambitionen des Bewerbers erfahren. Sie ermöglicht es dem Arbeitgeber, einzuschätzen, ob der Bewerber langfristig in das Unternehmen passen und sich weiterentwickeln könnte, und ob seine Ziele mit den Entwicklungsmöglichkeiten innerhalb des Unternehmens übereinstimmen.
 # Nachfrage
-Q1:Könnten Sie mir mehr über die Rotation durch verschiedene Abteilungen während der Ausbildung erzählen?  
-Q2:Ich möchte wissen, wie die Pausenzeit für die Mitarbeiter im Krankenhaus geplant wird.
+Q2:Könnten Sie mir mehr über die Rotation durch verschiedene Abteilungen während der Ausbildung erzählen?
+Q1:Ich möchte auch wissen, wie der Alltag an der Berufsschule und in dem Betrieb aussieht?
