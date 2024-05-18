@@ -85,5 +85,5 @@ Diese Frage soll Einblicke in die Problemlösungsfähigkeiten, Konfliktlösungsk
 ## Wo sehen Sie sich in fünf Jahren beruflich?
 Durch diese Frage möchte der Arbeitgeber mehr über die langfristigen beruflichen Ziele und Ambitionen des Bewerbers erfahren. Sie ermöglicht es dem Arbeitgeber, einzuschätzen, ob der Bewerber langfristig in das Unternehmen passen und sich weiterentwickeln könnte, und ob seine Ziele mit den Entwicklungsmöglichkeiten innerhalb des Unternehmens übereinstimmen.
 # Nachfrage
-Q2:Könnten Sie mir mehr über die Rotation durch verschiedene Abteilungen während der Ausbildung erzählen?
-Q1:Ich möchte auch wissen, wie der Alltag an der Berufsschule und in dem Betrieb aussieht?
+Q1:Könnten Sie mir mehr über die Rotation durch verschiedene Abteilungen während der Ausbildung erzählen?  
+Q2:Ich möchte auch wissen, wie der Alltag an der Berufsschule und in dem Betrieb aussieht?
