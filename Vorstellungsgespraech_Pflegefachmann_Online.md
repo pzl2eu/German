@@ -39,25 +39,27 @@ mit Ärzten, Patienten und ihren Familien **effektive kommunizieren**
 ## Arbeitszeiten
 Als Pflegefachmann arbeite ich **38 bis 40 Stunden** pro Woche im **Schichtdienst**, da Patienten **rund um die Uhr** auf Hilfe angewiesen sind, arbeite ich auch **nachts, am Wochenende sowie an Feiertagen**. Als Ausgleich dafür habe ich dann an einem anderen **Wochentag** frei.  
 ## Lerninhalt
-Grundlagen zum Ausbildungsstart
-Unterstützung der Patienten bei Bewegung und Selbstversorgung
-Reflexion der Pflegerfahrung
-Gesundheitsförderung und -prävention
-Kurative Prozesse und Patientensicherheit
-Handeln in Akutsituationen
-Rehabilitation
-Begleitung von Patienten in der letzten Lebensphase
-Unterstützung der Patienten bei der Lebensgestaltung
-Pflege von Kindern und Jugendlichen
+Grundlagen zum Ausbildungsstart  
+Unterstützung der Patienten bei Bewegung und Selbstversorgung  
+Reflexion der Pflegerfahrung  
+Gesundheitsförderung und -prävention  
+Kurative Prozesse und Patientensicherheit  
+Handeln in Akutsituationen  
+Rehabilitation  
+Begleitung von Patienten in der letzten Lebensphase  
+Unterstützung der Patienten bei der Lebensgestaltung  
+Pflege von Kindern und Jugendlichen  
 Pflege von Patienten mit psychischen Problemen
 ## Fachweiterbildungen 
-Intensivpflege
-Notfallpflege
-Psychiatrie
-Onkologie
+Intensivpflege  
+Notfallpflege  
+Psychiatrie  
+Onkologie  
 Geriatrie und Rehabilitation
 ## Unternehmen/Kultur/Produkte  
 Bis jetzt habe ich noch keine Erfahrungen im Pflegebereich gesammelt. Ich habe jedoch bereits viele Informationen über die Ausbildung zum Pflegefachmann erkundet. Meines Verständnisses nach ist Kommunikation in der Pflege unerlässlich. Man muss ständig die Bedürfnisse der Patienten im Auge behalten und darauf eingehen.   ???
+## Lernmethode
+Ich denke, es gibt nicht die perfekte Lernmethode. Um die besten Lernergebnisse zu erzielen, muss man die Selbstlern- und Gruppenlernmethoden kombinieren. Beim Selbstlernen kann man das lernen, was ihn interessiert oder was er vertiefen muss. Beim Gruppenlernen kann man durch den Austausch von verschiedenen Aspekten etwas Neues beherrschen.
 ## Team  
 Ich glaube, ein Team ist wie ein Spiegel, der mir hilft, mich selbst in der Arbeit klarer zu sehen. Wir machen oft unbewusst Fehler, ohne sie zu bemerken. Mitarbeiter können mir helfen, sodass ich mich selbst verbessern und dann Wert für das Team schaffen kann.
 ## Abteilung  
