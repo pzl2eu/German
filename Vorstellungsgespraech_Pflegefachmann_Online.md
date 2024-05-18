@@ -9,12 +9,8 @@ Im Jahr 2022 habe ich meinen Bachelor in **Geoinformatik**, einem ingenieurwisse
 Bisher habe ich als Technik-Künstler und als Geschäftsmitarbeiter gearbeitet. Ich habe jedoch festgestellt, dass dieser Job nicht zu meiner Persönlichkeit passt. Obwohl er viel Geld einbringen könnte, möchte ich lieber eine körperlich anspruchsvollere Stelle suchen, bei der ich mit anderen kommunizieren kann, anstatt lange Stunden im Büro vor dem Computer zu sitzen. Also habe ich beschlossen, mich beruflich neu zu orientieren.  
 Dann wurde die Frau meines Freundes zufällig schwanger, und da im Laden Personal fehlte, habe ich ausgeholfen, um etwas Geld zu verdienen. Von dieser Zeit an begonnen ich, die Voraussetzungen als Pflegefachmann in China zu recherchieren. Dabei habe ich festgestellt, dass die meisten Pflegeeinrichtungen mindestens einen Bachelor-Abschluss verlangen, weil da es jedes Jahr immer viele Absolventen und nicht mehr neue Arbeitsplätze gibt.  
 Eines Tages schickte mir ein anderer Freund, der sich in Deutschland auf ein Masterstudium an der Uni Bielefeld vorbereitet, eine kurze Nachricht. Er erwähnte dabei, dass es in Deutschland viele Ausbildungsplätze für Pflegefachkräfte gibt und die Aussichten sehr gut sind. Aus diesem Grund habe ich mich entschlossen, in meiner Freizeit Deutsch zu lernen, um meine Chancen zu erhöhen, in Zukunft als Pflegefachkraft in Deutschland zu arbeiten.
-
-
-
-Bis jetzt habe ich noch keine Erfahrungen im Pflegebereich gesammelt. Ich habe jedoch bereits viele Informationen über die Ausbildung zum Pflegefachmann erkundet. Meines Verständnisses nach ist Kommunikation in der Pflege unerlässlich. Man muss ständig die Bedürfnisse der Patienten im Auge behalten und darauf eingehen.
-## Sprachkenntnisse  
-Nun habe ich das Goethe-Zertifikat B1 erfolgreich erworben und die Teile Sprechen, Lesen und Schreiben des Niveaus B2 bestanden. Darüber hinaus verfüge ich über Englischkenntnisse auf ungefähr B1-Niveau.
+## Sprachen
+Nun habe ich das **Goethe-Zertifikat** B1 erfolgreich erworben und die Teile Sprechen, Lesen und Schreiben des Niveaus B2 bestanden. Darüber hinaus verfüge ich über **Englischkenntnisse** auf ungefähr B1-Niveau.
 ## Hobbys und Interessen  
 Mein Hobby ist es, mit Freunden Melodien zu summen und die Natur zu genießen. Dadurch könnten wir Stress abbauen und unsere Akkus aufladen.
 # Stärken & Schwächen
@@ -59,7 +55,7 @@ Psychiatrie
 Onkologie
 Geriatrie und Rehabilitation
 ## Unternehmen/Kultur/Produkte  
-
+Bis jetzt habe ich noch keine Erfahrungen im Pflegebereich gesammelt. Ich habe jedoch bereits viele Informationen über die Ausbildung zum Pflegefachmann erkundet. Meines Verständnisses nach ist Kommunikation in der Pflege unerlässlich. Man muss ständig die Bedürfnisse der Patienten im Auge behalten und darauf eingehen.   ???
 ## Team  
 Ich glaube, ein Team ist wie ein Spiegel, der mir hilft, mich selbst in der Arbeit klarer zu sehen. Wir machen oft unbewusst Fehler, ohne sie zu bemerken. Mitarbeiter können mir helfen, sodass ich mich selbst verbessern und dann Wert für das Team schaffen kann.
 ## Abteilung  
