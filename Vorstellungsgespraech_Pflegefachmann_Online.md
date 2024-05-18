@@ -25,6 +25,7 @@ Ich lege mehr Wert auf Work-Life-Balance. In China konzentrieren sich viele Mens
 ## Sozialversicherung
 Wie allgemein bekannt ist, ist das **Sozialversicherungssystem** in Deutschland sehr attraktiv für diejenigen, die stabil in Deutschland arbeiten und leben möchten.
 ## Freund
+Für einen Ausländer ist es definitiv eine herausfordernde Aufgabe, zum ersten Mal in Deutschland zu arbeiten. Mit der Hilfe von meinem Freund können alle Problemen, die im Leben auftreten, zeitnah und angemessen gelöst werden, so dass ich mich intensiver auf meine Arbeit konzentrieren kann.
 ## Wohnort
 Aus meiner Berufserfahrung kann ich sagen, dass ich Großstädte aus der Umweltsicht nicht mag. Ich schätze Ruhe, Natur und frische Luft am meisten. Zudem brauche ich auch nachhaltige Beziehungen zu Nachbarn und Freunden. Dennoch ist die Mobilität in Großstädten sehr hoch; es fällt schwer, an einem bestimmten Wohnort einen Freundeskreis aufzubauen und ständig zu pflegen.
 # Beruf/Arbeit
