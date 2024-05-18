@@ -34,7 +34,7 @@ Fachpflege: wechseln Verbände, verabreichen Infusionen auf ärztliche Anordnung
 Rück- und Fortschritte der Patienten überwachen und **dokumentieren**  
 mit Ärzten, Patienten und ihren Familien **effektive kommunizieren** 
 ## Arbeitszeiten
-Als Pflegefachmann arbeite ich **38 bis 40 Stunden** pro Woche im **Schichtdienst**, da Patienten rund um die Uhr auf Hilfe angewiesen sind, arbeite ich auch nachts, am Wochenende sowie an Feiertagen. Als Ausgleich dafür habe ich dann an einem anderen Wochentag frei.  
+Als Pflegefachmann arbeite ich **38 bis 40 Stunden** pro Woche im **Schichtdienst**, da Patienten **rund um die Uhr** auf Hilfe angewiesen sind, arbeite ich auch **nachts, am Wochenende sowie an Feiertagen**. Als Ausgleich dafür habe ich dann an einem anderen **Wochentag** frei.  
 ## Lerninhalt
 Grundlagen zum Ausbildungsstart
 Unterstützung der Patienten bei Bewegung und Selbstversorgung
