@@ -66,7 +66,7 @@ Ich glaube, ein Team ist wie ein Spiegel, der mir hilft, mich selbst in der Arbe
 Ich habe keine tiefe Kenntnisse über die verschiedenen Abteilungen in deutschen Krankenhäusern. 
 Anfangs werde ich flexibel in der angegebenen Abteilung gemäß den Bedürfnissen des Krankenhauses arbeiten, später könnte ich dazu neigen, in einer bestimmten Abteilung zu arbeiten. Unabhängig von der Abteilung werde ich immer verantwortungsvoll arbeiten und hochwertige Pflegedienstleistungen anbieten.
 ## Umgang mit Stress 
-Um Stress abzubauen, setze ich klare Prioritäten und zerlege große Ziele in kleinere Schritte. Während der Pause praktiziere ich Meditation. Wenn ich ein Problem nicht selbst lösen kann, suche ich Hilfe bei erfahrenen Kollegen und Vorgesetzten.
+Um Stress abzubauen, zunächst nehme ich drei tiefe Atemzüge, dann setze ich klare Prioritäten und zerlege große Ziele in kleinere Schritte. Wenn ich ein Problem nicht selbst lösen kann, suche ich Hilfe bei erfahrenen Kollegen und Vorgesetzten.
 ## Herausforderungen
 Aus meiner Sicht gibt es 2 Belastungen: körperlich und seelisch.
 Körperlich gesehen, ist es nicht einfach, jeden Tag lange Stunden zu stehen und oft Nachtschicht zu machen. Und bei der Arbeit besteht auch das Risiko einer Infektion.
