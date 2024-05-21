@@ -1,8 +1,8 @@
 # Selbstvorstellung 
 ## Small Talk  
-Vielen Dank für die Einladung, mich vorzustellen.  
+Ehrlich gesagt bin ich ein bisschen aufgeregt. Vielen Dank für die Einladung und wie wollen wir dieses Gespräch machen?  
 ## Über mich  
-Mein Name ist Luo Pengzhao und ich komme aus China, genauer gesagt aus Baoding, einer Stadt nicht weit von Peking entfernt.    
+Mein Name ist Pengzhao Luo und ich komme aus China, genauer gesagt aus Baoding, einer Stadt nicht weit von Peking entfernt.    
 ## Höchster Bildungsabschluss  
 Im Jahr 2022 habe ich meinen Bachelor in **Geoinformatik**, einem ingenieurwissenschaftlichen Fach, an der **Shanghai Ocean University** abgeschlossen. Kurz vor dem Abschluss habe ich erfahren, dass viele Menschen in Shanghai aufgrund von **Corona** ohne ausreichende Pflegeleistungen gelitten haben. In Pflegeeinrichtungen gibt es nicht genügend Betten und Pflegefachleute, um Kindern und älteren Menschen mit chronischen Krankheiten Pflegeversorgungen anzubieten. Während dieser Zeit war das Schlimmste für mich, dass ich manchmal Leute mit Schutzkleidung sah, die verstorbene ältere Menschen aus Wohngebieten holten. So habe ich die Bedeutung von Pflege erkannt. 
 ## Berufserfahrungen  
@@ -92,3 +92,5 @@ Durch diese Frage möchte der Arbeitgeber mehr über die langfristigen beruflich
 # Nachfrage
 Q1:Könnten Sie mir mehr über die Rotation durch verschiedene Abteilungen während der Ausbildung erzählen?  
 Q2:Ich möchte auch wissen, wie die Routine an der Berufsschule und in dem Betrieb aussieht?
+# Endung
+Keine Frage mehr. Vielen Dank, dass Sie sich heute die Zeit genommen haben. Und ich wünsche Ihnen einen schönen Tag.
