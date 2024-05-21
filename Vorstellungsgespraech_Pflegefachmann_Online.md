@@ -93,3 +93,5 @@ Q1:Könnten Sie mir mehr über die Rotation durch verschiedene Abteilungen währ
 Q2:Ich möchte auch wissen, wie die Routine an der Berufsschule und in dem Betrieb aussieht?
 # Endung
 Keine Frage mehr. Vielen Dank, dass Sie sich heute die Zeit genommen haben. Und ich wünsche Ihnen einen schönen Tag.
+# Tipps
+Entschuldigung, ich habe Ihre Frage nicht ganz verstanden, könnten Sie das bitte genauer erklären?
