@@ -16,6 +16,8 @@ Mein Hobby ist es, mit Freunden Melodien zu summen und die Natur zu genießen. D
 # Stärken & Schwächen
 Ich bin **aufgeschlossen** und überzeugt, dass viele Dinge nicht durch Ursache-Wirkungs-Beziehung bedacht werden können. Ich bin **lernbereit**. Deutsch ist meine zweite Fremdsprache. Ich möchte ständig meine Deutschkenntnisse durch verschiedene Methoden verbessern. Außerdem möchte ich etwas Neues entdecken. Manchmal bin ich **selbstkritisch**. Zum Beispiel muss ich jeden Tag bestimmte Ziele beim Deutschlernen erreichen, ansonsten schlafe ich später ein. Jetzt habe ich erkannt, dass Nachhaltigkeit, also meine eigene Gesundheit, für langfristige Ziele besser ist.
 # Motivation
+## Was sagt ihre Familie dazu, dass sie nach Deutschland gehen?
+
 ## Qualität
 Die Pflegeausbildung in **Deutschland** gehört zur Weltspitze. Dadurch kann man nicht nur **Berufserfahrung sammeln**, sondern auch einige **Vergütungen erhalten**, um den eigenen Alltag zu finanzieren.
 ## Sinn
