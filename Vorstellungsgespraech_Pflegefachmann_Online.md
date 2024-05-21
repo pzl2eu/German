@@ -19,7 +19,7 @@ Ich bin **aufgeschlossen** und überzeugt, dass viele Dinge nicht durch Ursache-
 ## Qualität
 Die Pflegeausbildung in **Deutschland** gehört zur Weltspitze. Dadurch kann man nicht nur **Berufserfahrung sammeln**, sondern auch einige **Vergütungen erhalten**, um den eigenen Alltag zu finanzieren.
 ## Sinn
-Basierend auf der Liebe kümmern wir uns um die Gesundheit der Patienten. Kranke Menschen gesund pflegen, alte Menschen auf dem letzten Stück ihres Lebens begleiten.
+Basierend auf dem christlichen Menschenbild kümmern wir uns um die Gesundheit der Patienten. Kranke Menschen gesund pflegen, alte Menschen auf dem letzten Stück ihres Lebens begleiten. Das finde ich sehr sinnvoll.
 ## Work-Life-Balance
 Ich lege mehr Wert auf Work-Life-Balance. In China konzentrieren sich viele Menschen zu sehr auf ihre Arbeit und vernachlässigen andere wichtige Aspekte ihres Lebens, was zu einer Reihe von Problemen führt, wie Gesundheitsproblemen und Ehekonflikten. Aber die Realität ist, dass eine vernünftige Planung des persönlichen Lebens in der Freizeit tatsächlich dazu beitragen kann, eine nachhaltige hohe Arbeitsleistung zu fördern.
 ## Sozialversicherung
