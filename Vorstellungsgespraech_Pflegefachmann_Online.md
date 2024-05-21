@@ -88,9 +88,9 @@ Diese Frage zielt darauf ab, konkrete Beispiele für die beruflichen Erfahrungen
 Diese Frage soll Einblicke in die Problemlösungsfähigkeiten, Konfliktlösungskompetenzen und die allgemeine Arbeitsweise des Bewerbers bieten. Sie ermöglicht es dem Arbeitgeber, herauszufinden, wie der Bewerber mit schwierigen Situationen umgeht und ob er über die Fähigkeiten verfügt, um effektiv mit Herausforderungen im Arbeitsumfeld umzugehen.
 ## Wo sehen Sie sich in fünf Jahren beruflich?
 Durch diese Frage möchte der Arbeitgeber mehr über die langfristigen beruflichen Ziele und Ambitionen des Bewerbers erfahren. Sie ermöglicht es dem Arbeitgeber, einzuschätzen, ob der Bewerber langfristig in das Unternehmen passen und sich weiterentwickeln könnte, und ob seine Ziele mit den Entwicklungsmöglichkeiten innerhalb des Unternehmens übereinstimmen.
-# Nachfrage
-Q1:Könnten Sie mir mehr über die Rotation durch verschiedene Abteilungen während der Ausbildung erzählen?  
-Q2:Ich möchte auch wissen, wie die Routine an der Berufsschule und in dem Betrieb aussieht?
+# Nachfrage 
+Q1:Ich möchte wissen, wie die Routine an der Berufsschule und in dem Betrieb aussieht?  
+Q2:Welche Möglichkeiten für Fort- und Weiterbildung bietet Ihr Unternehmen?
 # Endung
 Keine Frage mehr. Vielen Dank, dass Sie sich heute die Zeit genommen haben. Und ich wünsche Ihnen einen schönen Tag.
 # Tipps
