@@ -58,7 +58,9 @@ Psychiatrie
 Onkologie  
 Geriatrie und Rehabilitation
 ## Unternehmen/Kultur/Produkte  
-Bis jetzt habe ich noch keine Erfahrungen im Pflegebereich gesammelt. Ich habe jedoch bereits viele Informationen über die Ausbildung zum Pflegefachmann erkundet. Meines Verständnisses nach ist Kommunikation in der Pflege unerlässlich. Man muss ständig die Bedürfnisse der Patienten im Auge behalten und darauf eingehen.   ???
+
+## Erfahrungen
+Bis jetzt habe ich noch keine Erfahrungen im Pflegebereich gesammelt. Aber ich hatte eine Erfahrung mit meiner Cousine. Sie ist 50 Jahre alt und hatte eine Tumoreoperation. Während sie sich danach zu Hause erholte, spürte sie einige Nebenwirkungen und fürchtete den Tod. Also fing sie an, Psychologie selbst zu studieren und ich besuchte sie jede Woche zu Hause, um mit ihr über Psychologie zu reden. Später, als ich Deutsch lernte, entdeckte ich zufällig die beiden deutschsprachigen Psychologen Carl Gustav Jung und Alfred Adler. Ihre Theorien hatten auch großen Einfluss auf das Leben meiner Cousine und mich. Zum Beispiel ... Das ist etwas, was ich mein ganzes Leben lang nicht vergessen werde.
 ## Lernmethode
 Ich denke, es gibt nicht die perfekte Lernmethode. Um die besten Lernergebnisse zu erzielen, muss man die Selbstlern- und Gruppenlernmethoden kombinieren. Beim Selbstlernen kann man das lernen, was ihn interessiert oder was er vertiefen muss. Beim Gruppenlernen kann man durch den Austausch von verschiedenen Aspekten etwas Neues beherrschen.
 ## Team  
