@@ -33,9 +33,8 @@ Aus meiner Berufserfahrung kann ich sagen, dass ich Großstädte aus der Umwelts
 Die Ausbildung zum Pflegefachmann dauert in Vollzeit **drei Jahre**. Sie besteht aus 2 Teilen: 2100 Stunden **Theorie** und 2500 Stunden **Praxis**. Theoriephasen an der Schule wechseln sich mit Praxisphasen in verschiedenen Pflegeeinrichtungen 4 bis 6 Wochen ab. Durch die generalistische Ausrichtung kann man auch alle Pflegebereiche kennenlernen: Altenheim (stationäre Pflege), Krankenhaus (akute Pflege) und Pflegedienst (ambulante Pflege). Nach Abschluss der Ausbildung legt man die staatliche Prüfung zum Pflegefachmann ab.
 ## Tätigkeiten
 Grundpflege: bei der Körperpflege, Nahrungsaufnahme sowie Einnahme von Medikamenten  
-Fachpflege: wechseln Verbände, verabreichen Infusionen auf ärztliche Anordnung  
-Rück- und Fortschritte der Patienten überwachen und **dokumentieren**  
-mit Ärzten, Patienten und ihren Familien **effektive kommunizieren** 
+Fachpflege: Verbände wechseln, Infusionen verabreichen, Blutdruck messen    
+Durch die Zusammenarbeit mit Ärzten **kommunizieren** mit Patienten und deren Familien.
 ## Arbeitszeiten
 Als Pflegefachmann arbeite ich **38 bis 40 Stunden** pro Woche im **Schichtdienst**, da Patienten **rund um die Uhr** auf Hilfe angewiesen sind, arbeite ich auch **nachts, am Wochenende sowie an Feiertagen**. Als Ausgleich dafür habe ich dann an einem anderen **Wochentag** frei.  
 ## Lerninhalt
