@@ -26,7 +26,7 @@ Die Pflegeausbildung in **Deutschland** gehört zur Weltspitze. Dadurch kann man
 ## Sinn
 Basierend auf dem christlichen Menschenbild kümmern wir uns um die Gesundheit der Patienten. Kranke Menschen gesund pflegen, alte Menschen auf dem letzten Stück ihres Lebens begleiten. Das finde ich sehr sinnvoll.
 ## Work-Life-Balance
-Ich lege mehr Wert auf Work-Life-Balance. In China konzentrieren sich viele Menschen zu sehr auf ihre Arbeit und vernachlässigen andere wichtige Aspekte ihres Lebens, was zu einer Reihe von Problemen führt, wie Gesundheitsproblemen und Ehekonflikten. Aber die Realität ist, dass eine vernünftige Planung des persönlichen Lebens in der Freizeit tatsächlich dazu beitragen kann, eine nachhaltige hohe Arbeitsleistung zu fördern.
+Ich lege mehr Wert auf Work-Life-Balance. Die Realität ist, dass Work-Life-Balance tatsächlich dazu beitragen kann, eine nachhaltige Arbeitsleistung zu fördern.
 ## Sozialversicherung
 Wie allgemein bekannt ist, ist das **Sozialversicherungssystem** in Deutschland sehr attraktiv für diejenigen, die stabil in Deutschland arbeiten und leben möchten.
 ## Freund
@@ -38,7 +38,7 @@ Aus meiner Berufserfahrung kann ich sagen, dass ich Großstädte aus der Umwelts
 Die Ausbildung zum Pflegefachmann dauert in Vollzeit **drei Jahre**. Sie besteht aus 2 Teilen: 2100 Stunden **Theorie** und 2500 Stunden **Praxis**. Theoriephasen an der Schule wechseln sich mit Praxisphasen in verschiedenen Pflegeeinrichtungen 4 bis 6 Wochen ab. Durch die generalistische Ausrichtung kann man auch alle Pflegebereiche kennenlernen: Altenheim (stationäre Pflege), Krankenhaus (akute Pflege) und Pflegedienst (ambulante Pflege). Nach Abschluss der Ausbildung legt man die staatliche Prüfung zum Pflegefachmann ab.
 ## Tätigkeiten
 Grundpflege: bei der Körperpflege, Nahrungsaufnahme sowie Einnahme von Medikamenten  
-Fachpflege: Verbände wechseln, Infusionen verabreichen, Blutdruck messen    
+Fachpflege: Verbände wechseln, Infusionen sicher verabreichen, Blutdruck messen    
 Durch die Zusammenarbeit mit Ärzten **kommunizieren** mit Patienten und deren Familien.
 ## Arbeitszeiten
 Als Pflegefachmann arbeite ich **38 bis 40 Stunden** pro Woche im **Schichtdienst**, da Patienten **rund um die Uhr** auf Hilfe angewiesen sind, arbeite ich auch **nachts, am Wochenende sowie an Feiertagen**. Als Ausgleich dafür habe ich dann an einem anderen **Wochentag** frei.  
@@ -54,12 +54,6 @@ Begleitung von Patienten in der letzten Lebensphase
 Unterstützung der Patienten bei der Lebensgestaltung  
 Pflege von Kindern und Jugendlichen  
 Pflege von Patienten mit psychischen Problemen
-## Fachweiterbildungen 
-Intensivpflege  
-Notfallpflege  
-Psychiatrie  
-Onkologie  
-Geriatrie und Rehabilitation
 ## Unternehmen/Kultur/Produkte  
 
 ## Überstuden
