@@ -59,6 +59,8 @@ Onkologie
 Geriatrie und Rehabilitation
 ## Unternehmen/Kultur/Produkte  
 
+## Überstuden
+Wenn meine persönliche Situation es erlaubt und die Arbeit es erfordert, bin ich bereit, in Maßen Überstunden zu machen.
 ## Erfahrungen
 Bis jetzt habe ich noch keine Erfahrungen im Pflegebereich gesammelt. Aber ich hatte eine Erfahrung mit meiner Cousine. Sie ist 50 Jahre alt und hatte eine Tumoreoperation. Während sie sich danach zu Hause erholte, spürte sie einige Nebenwirkungen und fürchtete den Tod. Also fing sie an, Psychologie selbst zu studieren und ich besuchte sie jede Woche zu Hause, um mit ihr über Psychologie zu reden. Später, als ich Deutsch lernte, entdeckte ich zufällig die beiden deutschsprachigen Psychologen Carl Gustav Jung und Alfred Adler. Ihre Theorien hatten auch großen Einfluss auf das Leben meiner Cousine und mich. Zum Beispiel ... Das ist etwas, was ich mein ganzes Leben lang nicht vergessen werde.
 ## Lernmethode
