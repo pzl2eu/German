@@ -18,6 +18,8 @@ Ich bin **aufgeschlossen** und überzeugt, dass viele Dinge nicht durch Ursache-
 # Motivation
 ## Was sagt ihre Familie dazu, dass sie nach Deutschland gehen?
 Meine Eltern sind dafür, dass ich in Zukunft als Pflegefachmann in Deutschland arbeiten. Sie haben jedoch auch Bedenken um die Sicherheit geäußert, weil sie nur ein bisschen über Deutschland wissen. Dazu habe ich viele Erfahrungsbeiträge von chinesischen Menschen in Deutschland im Internet gelesen, so kann ich ein umfassendes Bild von Deutschland bekommen und dann kann ich mich leichter in die deutsche Gesellschaft integrieren.
+## Persönlichkeit
+
 ## Qualität
 Die Pflegeausbildung in **Deutschland** gehört zur Weltspitze. Dadurch kann man nicht nur **Berufserfahrung sammeln**, sondern auch einige **Vergütungen erhalten**, um den eigenen Alltag zu finanzieren.
 ## Sinn
@@ -62,7 +64,7 @@ Geriatrie und Rehabilitation
 ## Überstuden
 Wenn meine persönliche Situation es erlaubt und die Arbeit es erfordert, bin ich bereit, in Maßen Überstunden zu machen.
 ## Erfahrungen
-Bis jetzt habe ich noch keine Erfahrungen im Pflegebereich gesammelt. Aber ich hatte eine Erfahrung mit meiner Cousine. Sie ist 50 Jahre alt und hatte eine Tumoreoperation. Während sie sich danach zu Hause erholte, spürte sie einige Nebenwirkungen und fürchtete den Tod. Also fing sie an, Psychologie selbst zu studieren und ich besuchte sie jede Woche zu Hause, um mit ihr über Psychologie zu reden. Später, als ich Deutsch lernte, entdeckte ich zufällig die beiden deutschsprachigen Psychologen Carl Gustav Jung und Alfred Adler. Ihre Theorien hatten auch großen Einfluss auf das Leben meiner Cousine und mich. Zum Beispiel ... Das ist etwas, was ich mein ganzes Leben lang nicht vergessen werde.
+Bis jetzt habe ich noch keine Erfahrungen im Pflegebereich gesammelt. Aber ich hatte eine Erfahrung mit meiner Cousine. Sie ist 50 Jahre alt und hatte eine Tumoreoperation. Während sie sich danach zu Hause erholte, spürte sie einige Nebenwirkungen und fürchtete den Tod. Also fing sie an, Psychologie selbst zu studieren und ich besuchte sie jede Woche zu Hause, um sie zu begleiten und über Psychologie zu reden. Später, als ich Deutsch lernte, entdeckte ich zufällig die beiden deutschsprachigen Psychologen Carl Gustav Jung und Alfred Adler. Ihre Theorien hatten auch großen Einfluss auf das Leben meiner Cousine und mich. Zum Beispiel ... Das ist etwas, was ich mein ganzes Leben lang nicht vergessen werde.
 ## Lernmethode
 Ich denke, es gibt nicht die perfekte Lernmethode. Um die besten Lernergebnisse zu erzielen, muss man die Selbstlern- und Gruppenlernmethoden kombinieren. Beim Selbstlernen kann man das lernen, was ihn interessiert oder was er vertiefen muss. Beim Gruppenlernen kann man durch den Austausch von verschiedenen Aspekten etwas Neues beherrschen.
 ## Team  
