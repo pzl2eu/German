@@ -1,6 +1,6 @@
 # Selbstvorstellung 
 ## Small Talk  
-Ehrlich gesagt bin ich ein bisschen aufgeregt. Vielen Dank für die Einladung und wie wollen wir dieses Gespräch machen?  
+Vielen Dank für die Einladung. Ehrlich gesagt bin ich ein bisschen aufgeregt und wie wollen wir dieses Gespräch machen?  
 ## Über mich  
 Mein Name ist Pengzhao Luo und ich komme aus China, genauer gesagt aus Baoding, einer Stadt nicht weit von Peking entfernt.    
 ## Höchster Bildungsabschluss  
