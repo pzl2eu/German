@@ -17,7 +17,7 @@ Mein Hobby ist es, mit Freunden Melodien zu summen und die Natur zu genießen. D
 Ich bin **aufgeschlossen** und überzeugt, dass viele Dinge nicht durch Ursache-Wirkungs-Beziehung bedacht werden können. Ich bin **lernbereit**. Deutsch ist meine zweite Fremdsprache. Ich möchte ständig meine Deutschkenntnisse durch verschiedene Methoden verbessern. Außerdem möchte ich etwas Neues entdecken. Manchmal bin ich **selbstkritisch**. Zum Beispiel muss ich jeden Tag bestimmte Ziele beim Deutschlernen erreichen, ansonsten schlafe ich später ein. Jetzt habe ich erkannt, dass Nachhaltigkeit, also meine eigene Gesundheit, für langfristige Ziele besser ist.
 # Motivation
 ## Was sagt ihre Familie dazu, dass sie nach Deutschland gehen?
-Meine Eltern sind dafür, dass ich in Zukunft als Pflegefachmann in Deutschland arbeiten. Sie haben jedoch auch Bedenken geäußert, weil sie nur ein bisschen über Deutschland wissen. Deshalb habe ich viele Informationen über die anderen Seiten von Deutschland erkundet, um meine persönliche Sicherheit zu gewährleisten.
+Meine Eltern sind dafür, dass ich in Zukunft als Pflegefachmann in Deutschland arbeiten. Sie haben jedoch auch Bedenken um die Sicherheit geäußert, weil sie nur ein bisschen über Deutschland wissen. Dazu habe ich viele Erfahrungsbeiträge von chinesischen Menschen in Deutschland im Internet gelesen, so kann ich ein umfassendes Bild von Deutschland bekommen und dann kann ich mich leichter in die deutsche Gesellschaft integrieren.
 ## Qualität
 Die Pflegeausbildung in **Deutschland** gehört zur Weltspitze. Dadurch kann man nicht nur **Berufserfahrung sammeln**, sondern auch einige **Vergütungen erhalten**, um den eigenen Alltag zu finanzieren.
 ## Sinn
