@@ -2,7 +2,7 @@
 ## Small Talk  
 Vielen Dank für die Einladung. Ehrlich gesagt bin ich ein bisschen aufgeregt und wie wollen wir dieses Gespräch machen?  
 ## Über mich  
-Mein Name ist Pengzhao Luo und ich komme aus China, genauer gesagt aus Baoding, einer Stadt nicht weit von Peking entfernt.    
+Mein Name ist Pengzhao Luo und ich komme aus Baoding, einer Stadt nicht weit von Peking entfernt.  
 ## Höchster Bildungsabschluss  
 Im Jahr 2022 habe ich meinen Bachelor in **Geoinformatik**, einem ingenieurwissenschaftlichen Fach, an der **Shanghai Ocean University** abgeschlossen. Kurz vor dem Abschluss habe ich erfahren, dass viele Menschen in Shanghai aufgrund von **Corona** ohne ausreichende Pflegeleistungen gelitten haben. In Pflegeeinrichtungen gab es nicht genügend Betten und Pflegefachleute, um Kindern und älteren Menschen mit chronischen Krankheiten Pflegeversorgungen anzubieten. Während dieser Zeit war das Schlimmste für mich, dass ich manchmal Leute mit Schutzkleidung sah, die verstorbene ältere Menschen aus Wohngebieten holten. So habe ich die Bedeutung von Pflege erkannt. 
 ## Berufserfahrungen  
