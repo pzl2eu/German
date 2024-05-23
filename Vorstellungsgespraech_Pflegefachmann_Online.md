@@ -94,6 +94,6 @@ Durch diese Frage möchte der Arbeitgeber mehr über die langfristigen beruflich
 Q1:Ich möchte wissen, wie die Routine an der Berufsschule und in dem Betrieb aussieht?  
 Q2:Welche Möglichkeiten für Fort- und Weiterbildung bietet Ihr Unternehmen?
 # Endung
-Keine Frage mehr. Vielen Dank, dass Sie sich heute die Zeit genommen haben. Und ich wünsche Ihnen einen schönen Tag.
+Keine Frage mehr. Vielen Dank, dass Sie sich die Zeit genommen haben. Und ich wünsche Ihnen einen schönen Tag.
 # Tipps
 Entschuldigung, ich habe Ihre Frage nicht ganz verstanden, könnten Sie das bitte genauer erklären?
