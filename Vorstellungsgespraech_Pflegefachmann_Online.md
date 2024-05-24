@@ -20,8 +20,8 @@ INTP(introverted内向, intuitive直觉, thinking思考, and perceiving感知)
 # Motivation
 ## Was sagt ihre Familie dazu, dass sie nach Deutschland gehen?
 Meine Eltern sind dafür, dass ich in Zukunft als Pflegefachmann in Deutschland arbeiten. Sie haben jedoch auch Bedenken um die Sicherheit geäußert, weil sie nur ein bisschen über Deutschland wissen. Dazu habe ich viele Erfahrungsbeiträge von chinesischen Menschen in Deutschland im Internet gelesen, so kann ich ein umfassendes Bild von Deutschland bekommen und dann kann ich mich leichter in die deutsche Gesellschaft integrieren.
-## Persönlichkeit
-Nach der Kündigung habe ich gemerkt, dass ich meine Persönlichkeit, also innere Bedürfnisse, verfolgen muss, sonst werde ich wieder unglücklich bei der Arbeit. Körperliche Arbeit und Kommunikation sind für mich wichtig.
+## Nach Innen schauen
+Nach der Kündigung habe ich gemerkt, dass ich innere Bedürfnisse, verfolgen muss, sonst werde ich wieder unglücklich bei der Arbeit.
 ## Arbeitsstabilität
 ## Qualität
 Die Pflegeausbildung in **Deutschland** gehört zur Weltspitze. Dadurch kann man nicht nur **Berufserfahrung sammeln**, sondern auch einige **Vergütungen erhalten**, um den eigenen Alltag zu finanzieren.
