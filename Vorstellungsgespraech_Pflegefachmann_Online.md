@@ -11,7 +11,7 @@ Dann wurde die Frau meines Freundes schwanger, und da im Laden Personal fehlte, 
 Eines Tages schickte mir ein anderer Freund, der sich in Deutschland auf ein Masterstudium an der Uni Bielefeld vorbereitet, eine kurze Nachricht. Er erwähnte dabei, dass es in Deutschland viele Ausbildungsplätze für Pflegefachkräfte gibt und die Aussichten sehr gut sind. Aus diesem Grund habe ich mich entschlossen, in meiner Freizeit Deutsch selbstständig zu lernen, um meine Chancen zu erhöhen, in Zukunft als Pflegefachkraft in Deutschland zu arbeiten.
 ## Sprachen
 Nun habe ich das **Goethe-Zertifikat** B1 erfolgreich erworben und die Teile Sprechen, Lesen und Schreiben des Niveaus B2 bestanden. Darüber hinaus verfüge ich über **Englischkenntnisse** auf ungefähr B1-Niveau.
-## Hobbys und Interessen  
+## Hobbys 
 Mein Hobby ist es, mit Freunden Melodien zu summen und die Natur zu genießen. Dadurch könnten wir Stress abbauen und unsere Akkus aufladen.
 ## Stärken & Schwächen
 Ich bin **aufgeschlossen** und überzeugt, dass viele Dinge nicht durch Ursache-Wirkungs-Beziehung bedacht werden können, da kann ich unnötige Konflikte bei der Arbeit vermeiden. Ich bin **lernbereit**. Das heisst, ich möchte gerne in meiner Freizeit die Deutschkenntnisse für Beruf, Alltag und Pflege ständig vertiefen. Manchmal bin ich **selbstkritisch**. Zum Beispiel muss ich jeden Tag bestimmte Ziele beim Deutschlernen erreichen, ansonsten schlafe ich später ein. Jetzt habe ich erkannt, dass Nachhaltigkeit, also meine eigene Gesundheit, für langfristige Ziele besser ist.
