@@ -28,7 +28,7 @@ Die Pflegeausbildung in **Deutschland** gehört zur Weltspitze. Dadurch kann man
 ## Sinn
 Basierend auf dem christlichen Menschenbild kümmern wir uns um die Gesundheit der Patienten. Kranke Menschen gesund pflegen, alte Menschen auf dem letzten Stück ihres Lebens begleiten. Das finde ich sehr sinnvoll.
 ## Work-Life-Balance
-Ich lege mehr Wert auf Work-Life-Balance. Die Realität ist, dass Work-Life-Balance tatsächlich dazu beitragen kann, eine nachhaltige Arbeitsleistung zu fördern.
+Ich lege mehr Wert auf Work-Life-Balance, da es tatsächlich dazu beitragen kann, eine nachhaltige Arbeitsleistung zu fördern.
 ## Sozialversicherung
 Wie allgemein bekannt ist, ist das **Sozialversicherungssystem** in Deutschland sehr attraktiv für diejenigen, die stabil in Deutschland arbeiten und leben möchten.
 ## Freund
