@@ -26,7 +26,7 @@ Nach der Kündigung habe ich gemerkt, dass ich innere Bedürfnisse, verfolgen mu
 ## Qualität
 Die Pflegeausbildung in **Deutschland** gehört zur Weltspitze. Dadurch kann man nicht nur **Berufserfahrung sammeln**, sondern auch einige **Vergütungen erhalten**, um den eigenen Alltag zu finanzieren.
 ## Sinn
-Basierend auf dem christlichen Menschenbild kümmern wir uns um die Gesundheit der Patienten. Kranke Menschen gesund pflegen, alte Menschen auf dem letzten Stück ihres Lebens begleiten. Das finde ich sehr sinnvoll.
+Basierend auf dem christlichen Menschenbild kümmern sich Pflegefachkräfte um die Gesundheit der Patienten, indem sie kranke Menschen pflegen und alte Menschen auf dem letzten Stück ihres Lebens begleiten. Das finde ich sehr sinnvoll.
 ## Work-Life-Balance
 Ich lege mehr Wert auf Work-Life-Balance, da es tatsächlich dazu beitragen kann, eine nachhaltige Arbeitsleistung zu fördern.
 ## Sozialversicherung
