@@ -17,6 +17,8 @@ Mein Hobby ist es, mit Freunden Melodien zu summen und die Natur zu genießen. D
 Ich bin **aufgeschlossen** und überzeugt, dass viele Dinge nicht durch Ursache-Wirkungs-Beziehung bedacht werden können, da kann ich unnötige Konflikte bei der Arbeit vermeiden. Ich bin **lernbereit**. Das heisst, ich möchte gerne in meiner Freizeit die Deutschkenntnisse für Beruf, Alltag und Pflege ständig vertiefen. Manchmal bin ich **selbstkritisch**. Zum Beispiel muss ich jeden Tag bestimmte Ziele beim Deutschlernen erreichen, ansonsten schlafe ich später ein. Jetzt habe ich erkannt, dass Nachhaltigkeit, also meine eigene Gesundheit, für langfristige Ziele besser ist.
 ## Persönlichkeit(Was denken Sie denn, welche Werte und welche Einstellungen sollte ein Mensch haben, wenn er in der Pflege arbeiten möchte?)
 INTP(introverted内向, intuitive直觉, thinking思考, and perceiving感知)
+## Was machen sie zur Zeit?
+
 # Motivation
 ## Was sagt ihre Familie dazu, dass sie nach Deutschland gehen?
 Meine Eltern sind dafür, dass ich in Zukunft als Pflegefachmann in Deutschland arbeiten. Sie haben jedoch auch Bedenken um die Sicherheit geäußert, weil sie nur ein bisschen über Deutschland wissen. Dazu habe ich viele Erfahrungsbeiträge von chinesischen Menschen in Deutschland im Internet gelesen, so kann ich ein umfassendes Bild von Deutschland bekommen und dann kann ich mich leichter in die deutsche Gesellschaft integrieren.
