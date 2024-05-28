@@ -18,7 +18,7 @@ Ich bin **aufgeschlossen** und überzeugt, dass viele Dinge nicht durch Ursache-
 ## Persönlichkeit(Was denken Sie denn, welche Werte und welche Einstellungen sollte ein Mensch haben, wenn er in der Pflege arbeiten möchte?)
 INTP(introverted内向, intuitive直觉, thinking思考, and perceiving感知)
 ## Was machen sie zur Zeit?
-
+## Engagieren Sie sich zurzeit sozial in irgendeiner Weise? 
 # Motivation
 ## Was sagt ihre Familie dazu, dass sie nach Deutschland gehen?
 Meine Eltern sind dafür, dass ich in Zukunft als Pflegefachmann in Deutschland arbeiten. Sie haben jedoch auch Bedenken um die Sicherheit geäußert, weil sie nur ein bisschen über Deutschland wissen. Dazu habe ich viele Erfahrungsbeiträge von chinesischen Menschen in Deutschland im Internet gelesen, so kann ich ein umfassendes Bild von Deutschland bekommen und dann kann ich mich leichter in die deutsche Gesellschaft integrieren.
