@@ -16,7 +16,10 @@ Mein Hobby ist es, mit Freunden Melodien zu summen und die Natur zu genießen. D
 ## Stärken & Schwächen
 Ich bin **aufgeschlossen** und überzeugt, dass viele Dinge nicht durch Ursache-Wirkungs-Beziehung bedacht werden können, da kann ich unnötige Konflikte bei der Arbeit vermeiden. Ich bin **lernbereit**. Das heisst, ich möchte gerne in meiner Freizeit die Deutschkenntnisse für Beruf, Alltag und Pflege ständig vertiefen. Manchmal bin ich **selbstkritisch**. Zum Beispiel muss ich jeden Tag bestimmte Ziele beim Deutschlernen erreichen, ansonsten schlafe ich später ein. Jetzt habe ich erkannt, dass Nachhaltigkeit, also meine eigene Gesundheit, für langfristige Ziele besser ist.
 ## Persönlichkeit(Was denken Sie denn, welche Werte und welche Einstellungen sollte ein Mensch haben, wenn er in der Pflege arbeiten möchte?)
-INTP(introverted内向, intuitive直觉, thinking思考, and perceiving感知)
+• Einfühlungsvermögen und Kontaktfähigkeit (z.B. im Umgang mit Patienten und Angehörigen)
+Respektieren und hören Sie auf die Bedürfnisse und Gefühle der Patienten und ihrer Familien, und versuchen Sie, ihre Situation und Emotionen zu verstehen. Kommunizieren Sie mit ihnen in klarer Sprache, bieten Sie emotionale und substantielle Unterstützung an und helfen Sie ihnen, die Herausforderungen im Krankheits- und Behandlungsprozess zu bewältigen.
+• Psychische Stabilität (z.B. im Umgang mit schwer kranken oder sterbenden Patienten)
+Selbstfürsorge
 ## Was machen sie zur Zeit?
 ## Engagieren Sie sich zurzeit sozial in irgendeiner Weise? 
 # Motivation
@@ -44,6 +47,7 @@ Die Ausbildung zum Pflegefachmann dauert in Vollzeit **drei Jahre**. Sie besteht
 Grundpflege: bei der Körperpflege, Nahrungsaufnahme sowie Einnahme von Medikamenten  
 Fachpflege: Verbände wechseln, Infusionen sicher verabreichen, Blutdruck messen    
 Durch die Zusammenarbeit mit Ärzten **kommunizieren** mit Patienten und deren Familien.
+Außerdem ist die **Dokumentation** von Pflegemaßnahmen sehr wichtig. Dabei muss man Sorgfalt und Verantwortungsbewusstsein zeigen.
 ## Stellen Sie sich vor, Sie müssten etwas zu essen geben, wie würden Sie das machen und worauf würden Sie es machen? 
 ## 
 ## Arbeitszeiten
