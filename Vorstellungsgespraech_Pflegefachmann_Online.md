@@ -19,8 +19,7 @@ Ich bin **aufgeschlossen** und überzeugt, dass viele Dinge nicht durch Ursache-
 **Einfühlungsvermögen** und **Kontaktfähigkeit** (z.B. im Umgang mit Patienten und Angehörigen)
 Respektieren und hören Sie auf die Bedürfnisse und Gefühle der Patienten und ihrer Familien, und versuchen Sie, ihre Situation und Emotionen zu verstehen. Kommunizieren Sie mit ihnen in klarer Sprache, bieten Sie emotionale und substantielle Unterstützung an und helfen Sie ihnen, die Herausforderungen im Krankheits- und Behandlungsprozess zu bewältigen.
 **Psychische Stabilität** (z.B. im Umgang mit schwer kranken oder sterbenden Patienten)
-
-Selbstfürsorge
+Wenn ich mit dem Tod von Patienten konfrontiert bin, erlaube ich mir, Trauer zu empfinden, denn das ist eine normale und gesunde emotionale Reaktion. Ich erinnere mich daran, dass ich zu der Zeit, als der Patient mich am meisten brauchte, alles getan habe, was ich konnte. Gleichzeitig verstehe ich, dass Trauer Zeit braucht, um sich abzuschwächen und akzeptiert zu werden. Um mir zu helfen, besser damit umzugehen, leite ich mich durch Meditation dazu an, meine Aufmerksamkeit von der anhaltenden Trauer auf die Dinge zu lenken, die mich in diesem Moment entspannen. Auf diese Weise kann ich beruhigter und gelassener mit der anstehenden Arbeit umgehen.
 ## Was machen sie zur Zeit?
 Zur Zeit helfe ich in dem kleinen Restaurant meines Bruders mit einigen einfachen Aufgaben, wie das Überprüfen der Rechnungen, das Reinigen der Tische und des Bodens.
 ## Engagieren Sie sich zurzeit sozial in irgendeiner Weise?
