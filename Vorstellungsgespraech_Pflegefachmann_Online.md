@@ -86,8 +86,10 @@ Wenn meine persönliche Situation es erlaubt und die Arbeit es erfordert, bin ic
 Bis jetzt habe ich noch keine Erfahrungen im Pflegebereich gesammelt. Aber ich hatte eine Erfahrung mit meiner Cousine. Sie ist 50 Jahre alt und hatte eine Operation wegen eines Tumors. Während sie sich danach zu Hause erholte, spürte sie einige Nebenwirkungen und fürchtete den Tod. Daher begann sie, selbst Psychologie zu lernen und ich besuchte sie jede Woche zu Hause, um sie zu begleiten und über Psychologie zu reden. Später, als ich Deutsch lernte, entdeckte ich zufällig den Psychologen Carl Gustav Jung. Seine Zitate hatten einen großen Einfluss auf unser Leben. Zum Beispiel: "Wer nach außen schaut, träumt. Wer nach innen schaut, erwacht." Das ist etwas, was ich mein ganzes Leben lang nicht vergessen werde.
 ## Lernmethode
 Meine Lernmethode basiert auf Projekten. Das heißt, anfangs tendiere ich eher dazu, das Ganze zu verstehen, anstatt mich auf ein bestimmtes Detail zu beschränken. Dann werde ich mich auf Details konzentrieren und wiederholen, um das Gelernte zu vertiefen.
-## Team  
-Ich glaube, ein Team ist wie ein Spiegel, der mir hilft, mich selbst in der Arbeit klarer zu sehen. Wir machen oft unbewusst Fehler, ohne sie zu bemerken. Mitarbeiter können mir helfen, sodass ich mich selbst verbessern und dann Wert für das Team schaffen kann.
+## Mögen Sie ein großes oder ein kleines Team bei der Arbeit ?
+Ich würde gerne im kleinen Team abrbeiten.
+a)Erstens ist die Kommunikation zwischen den Teammitgliedern in kleineren Gruppen oft direkter und effizienter, was dazu beiträgt, die Arbeit schneller zu erledigen.
+b)In kleineren Teams übernehmen Mitglieder oft mehr Verantwortung und haben die Chance, vielfältigere Aufgaben zu übernehmen. Dies kommt meiner persönlichen Weiterentwicklung und meiner beruflichen Entwicklung zugute.
 ## Abteilung  
 Ich habe keine tiefe Kenntnisse über die verschiedenen Abteilungen in deutschen Krankenhäusern. 
 Anfangs werde ich flexibel in der angegebenen Abteilung gemäß den Bedürfnissen des Krankenhauses arbeiten, später könnte ich dazu neigen, in einer bestimmten Abteilung zu arbeiten. Unabhängig von der Abteilung werde ich immer verantwortungsvoll arbeiten und hochwertige Pflegedienstleistungen anbieten.
