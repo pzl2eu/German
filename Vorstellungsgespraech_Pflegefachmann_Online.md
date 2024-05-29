@@ -49,6 +49,14 @@ Die Ausbildung zum Pflegefachmann dauert in Vollzeit **drei Jahre**. Sie besteht
 Erstens, Grundpflege: bei der Körperpflege, Nahrungsaufnahme sowie Einnahme von Medikamenten Zweitens, Fachpflege: Verbände wechseln, Infusionen sicher verabreichen, Blutdruck messen Drittens, durch die Zusammenarbeit mit Ärzten **kommunizieren** mit Patienten und deren Familien.
 Außerdem ist die **Dokumentation** von Pflegemaßnahmen sehr wichtig. Dabei muss man Sorgfalt und Verantwortungsbewusstsein zeigen.
 ## Stellen Sie sich vor, Sie müssten etwas zu essen geben, wie würden Sie das machen und worauf würden Sie es machen? 
+1) Schritt 1 – Kommunikation
+Zunächst würde ich den Arzt nach den Ernährungsverboten des Patienten fragen. Danach würde ich den Patienten fragen, ob eine Fütterung jetzt erforderlich ist. Wenn ja, würde ich ihn nach seinen Bedürfnissen fragen, z.B. seinen Geschmack, ob er kaltes oder heißes Essen bevorzugt, und besondere Anforderungen.
+2) Schritt zwei – Essen vorbereiten
+a. Ich würde das Essen vorbereiten und sicherstellen, dass es frisch und sauber ist.
+b. Ich würde die Lebensmittel in kleine Stücke schneiden und Trinkwasser dazugeben, um das Essen zu erleichtern.
+3) Schritt drei – Füttern
+Kommuniziere mit dem Patienten und passe die Höhe des Bettes an.
+Füttere den Patienten mit einem Löffel oder einem geeigneten Utensil. Vermeide zu schnelles Füttern und stelle sicher, dass der Patient problemlos kauen und schlucken kann.
 ## 
 ## Arbeitszeiten
 Als Pflegefachmann arbeite ich **38 bis 40 Stunden** pro Woche im **Schichtdienst**, da Patienten **rund um die Uhr** auf Hilfe angewiesen sind, arbeite ich auch **nachts, am Wochenende sowie an Feiertagen**. Als Ausgleich dafür habe ich dann an einem anderen **Wochentag** frei.  
