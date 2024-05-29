@@ -102,7 +102,7 @@ Um Stress abzubauen, nehme ich zunächst drei tiefe Atemzüge, dann setze ich kl
 Körperlich gesehen, besonders am Anfang, ist es nicht einfach, jeden Tag lange Stunden stehend zu verbringen und oft Nachtschichten zu machen. Dazu kommt auch das Risiko einer Infektion bei der Arbeit. 
 Auf der seelischen Seite, macht es mich sehr traurig, wenn Patienten sterben, da ich eine sehr einfühlsame Person bin.
 ## Welche persönlichen beruflichen Ziele haben Sie?
-Als Erstes möchte ich meine Ausbildung erfolgreich abschließen. Ich hoffe, dass ich nach der Ausbildung Deutsch auf dem Niveau C1 erreichen kann. Wenn alles gut läuft, würde ich gerne als Pflegefachmann in einer bestimmten Abteilung in der Firma arbeiten.
+Als Erstes möchte ich meine Ausbildung erfolgreich abschließen. Langfristig gesehen hoffe ich, dass ich nach der Ausbildung Deutsch auf dem Niveau C1 erreichen kann und wenn alles gut läuft, würde ich gerne als Pflegefachmann in einer bestimmten Abteilung in dem Unternehmen weiterarbeiten.
 # Erfolge
 ## Selbstständig Deutsch lernen
 Als Lerner des VHS-Lernportals, einer kostenlosen Plattform aus Deutschland, möchte ich mich für die Entwicklung bedanken. Das Portal bietet nicht nur Alltagsdeutsch bis zum Niveau B1, sondern auch einen beruflichen B2-Deutschkurs.  
