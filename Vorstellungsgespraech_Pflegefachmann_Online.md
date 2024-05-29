@@ -85,9 +85,10 @@ Ich würde gerne im kleinen Team abrbeiten.
 a)Erstens ist die Kommunikation zwischen den Teammitgliedern in kleineren Gruppen oft direkter und effizienter, was dazu beiträgt, die Arbeit schneller zu erledigen.
 b)In kleineren Teams übernehmen Mitglieder oft mehr Verantwortung und haben die Chance, vielfältigere Aufgaben zu übernehmen. Dies kommt meiner persönlichen Weiterentwicklung und meiner beruflichen Entwicklung zugute.
 ## Arbeiten Sie gerne in Lerngruppen oder arbeiten Sie lieber alleine?
-Teamarbeit und alleiniges Arbeiten haben jeweils ihre Vorzüge, welche Methode gewählt wird, hängt von der spezifischen Arbeitssituation ab.
+a)Durch Teamarbeit können Mitglieder ihre Ansichten und Ideen teilen und voneinander lernen. In diesem Prozess hat jeder die Möglichkeit, aus den Erfahrungen und dem Wissen anderer zu lernen und zu wachsen.  
+b)Darüber hinaus kann jedes Mitglied des Teams von seinem eigenen Standpunkt aus Lösungen für Probleme anbieten. Die Vielfalt an Lösungen kann dabei helfen, die beste Strategie zur Problemlösung zu finden.
 ## Stadt/Unternehmen/Kultur/Produkte  
-Die Stadt Paderborn ist mit über 156.000 Einwohnern (Stand 2023)[2] eine Großstadt im östlichen Teil des Landes Nordrhein-Westfalen.
+Die Stadt Paderborn ist mit über 156.000 Einwohnern eine Großstadt im östlichen Teil des Landes Nordrhein-Westfalen.
 ## Erfahrungen
 Bis jetzt habe ich noch keine Erfahrungen im Pflegebereich gesammelt. Aber ich hatte eine Erfahrung mit meiner Cousine. Sie ist 50 Jahre alt und hatte eine Operation wegen eines Tumors. Während sie sich danach zu Hause erholte, spürte sie einige Nebenwirkungen und fürchtete den Tod. Daher begann sie, selbst Psychologie zu lernen und ich besuchte sie jede Woche zu Hause, um sie zu begleiten und über Psychologie zu reden. Später, als ich Deutsch lernte, entdeckte ich zufällig den Psychologen Carl Gustav Jung. Seine Zitate hatten einen großen Einfluss auf unser Leben. Zum Beispiel: "Wer nach außen schaut, träumt. Wer nach innen schaut, erwacht." Das ist etwas, was ich mein ganzes Leben lang nicht vergessen werde.
 ## Lernmethode
