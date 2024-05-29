@@ -80,7 +80,7 @@ Unterstützung der Patienten bei der Lebensgestaltung
 Pflege von Kindern und Jugendlichen  
 Pflege von Patienten mit psychischen Problemen
 ## Arbeiten Sie gerne in Lerngruppen oder arbeiten Sie lieber alleine?
-Es hängt davon ab, welche Methode effektiver ist.
+Teamarbeit und alleiniges Arbeiten haben jeweils ihre Vorzüge, welche Methode gewählt wird, hängt von der spezifischen Arbeitssituation ab.
 ## Unternehmen/Kultur/Produkte  
 Die Stadt Paderborn ist mit über 156.000 Einwohnern (Stand 2023)[2] eine Großstadt im östlichen Teil des Landes Nordrhein-Westfalen.
 ## Überstuden
