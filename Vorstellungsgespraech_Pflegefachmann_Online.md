@@ -29,7 +29,8 @@ Kochen, Hausarbeit erledigen, dem Neffen bei den Hausaufgaben helfen.
 Meine Eltern sind dafür, dass ich in Zukunft als Pflegefachmann in Deutschland arbeiten. Sie haben jedoch auch Bedenken um die Sicherheit geäußert, weil sie nur ein bisschen über Deutschland wissen. Dazu habe ich viele Erfahrungsbeiträge von chinesischen Menschen in Deutschland im Internet gelesen, so kann ich ein umfassendes Bild von Deutschland bekommen und dann kann ich mich leichter in die deutsche Gesellschaft integrieren.
 ## Nach Innen schauen
 Nach der Kündigung habe ich gemerkt, dass ich innere Bedürfnisse, verfolgen muss, sonst werde ich wieder unglücklich bei der Arbeit.
-## Arbeitsstabilität
+## Was ist für Sie eine gute Schicht?
+Für mich als Pflegefachmann ist eine gute Schicht eine, in der ich effektiv und effizient arbeiten kann, um die bestmögliche Pflege für meine Patienten zu gewährleisten. Dies beinhaltet eine geruhsame Umgebung, eine gute Kommunikation im Team, genügend Zeit für jeden Patienten und die Möglichkeit, alle geplanten Aufgaben ohne unnötige Unterbrechungen zu erledigen. Es ist auch wichtig, dass ich am Ende der Schicht das Gefühl habe, dass ich einen positiven Einfluss auf das Wohlergehen meiner Patienten hatte.
 ## Qualität
 Die Pflegeausbildung in **Deutschland** gehört zur Weltspitze. Dadurch kann man nicht nur **Berufserfahrung sammeln**, sondern auch einige **Vergütungen erhalten**, um den eigenen Alltag zu finanzieren.
 ## Sinn
