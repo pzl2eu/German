@@ -44,8 +44,8 @@ Deutschland ist ein sehr umweltbewusstes Land, ich schätze seine Ruhe, die Natu
 Die Ausbildung zum Pflegefachmann dauert in Vollzeit **drei Jahre**. Sie besteht aus 2 Teilen: 2100 Stunden **Theorie** und 2500 Stunden **Praxis**. Theoriephasen an der Schule wechseln sich mit Praxisphasen in verschiedenen Pflegeeinrichtungen 4 bis 6 Wochen ab. Durch die generalistische Ausrichtung kann man auch alle Pflegebereiche kennenlernen: Altenheim (stationäre Pflege), Krankenhaus (akute Pflege) und Pflegedienst (ambulante Pflege). Nach Abschluss der Ausbildung legt man die staatliche Prüfung zum Pflegefachmann ab.
 ## Tätigkeiten
 Soweit ich weiß, haben Pflegefachkräfte vier Hauptaufgaben.  
-Erstens, Grundpflege: bei der Körperpflege, Nahrungsaufnahme sowie Einnahme von Medikamenten Zweitens, Fachpflege: Verbände wechseln, Infusionen sicher verabreichen, Blutdruck messen Drittens, durch die Zusammenarbeit mit Ärzten, kommunizieren sie mit Patienten und deren Familien, erfahren mehr über die Gefühle und den Schmerzzustand des Patienten, und erklären ihnen den Behandlungsplan des Arztes sowie die Verwendung von Medikamenten.  
-Letzter ist die **Dokumentation** von Pflegemaßnahmen. Dabei muss man Sorgfalt und Verantwortungsbewusstsein zeigen.
+a)Erstens, **Grundpflege**: bei der Körperpflege, Nahrungsaufnahme sowie Einnahme von Medikamenten b)Zweitens, **Fachpflege**: Verbände wechseln, Infusionen sicher verabreichen, Blutdruck messen c)Drittens, durch die Zusammenarbeit mit Ärzten, **kommunizieren** sie mit Patienten und deren Familien, erfahren mehr über die Gefühle und den Schmerzzustand des Patienten, und erklären ihnen den Behandlungsplan des Arztes sowie die Verwendung von Medikamenten.  
+d)Letzter ist die **Dokumentation** von Pflegemaßnahmen. Dabei muss man Sorgfalt und Verantwortungsbewusstsein zeigen.
 ## Stellen Sie sich vor, Sie müssten etwas zu essen geben, wie würden Sie das machen und worauf würden Sie es machen? 
 Wenn ich jemandem Essen geben müsste, würde ich bestimmten Schritten folgen, um sicherzustellen, dass dies sowohl sicher als auch angenehm ist.
 1) Schritt 1 - Kommunikation: Zunächst würde ich herausfinden, welche besonderen Ernährungsbedürfnisse oder Vorlieben sie haben könnten. Das kann Allergien, Diätrestriktionen oder einfach Geschmackspräferenzen beinhalten.
@@ -92,10 +92,10 @@ Die Stadt Paderborn ist mit über 156.000 Einwohnern eine Großstadt im östlich
 ## Erfahrungen
 Bis jetzt habe ich noch keine Erfahrungen im Pflegebereich gesammelt. Aber ich hatte eine Erfahrung mit meiner Cousine. Sie ist 50 Jahre alt und hatte eine Operation wegen eines Tumors. Während sie sich danach zu Hause erholte, spürte sie einige Nebenwirkungen und fürchtete den Tod. Daher begann sie, selbst Psychologie zu lernen und ich besuchte sie jede Woche zu Hause, um sie zu begleiten und über Psychologie zu reden. Später, als ich Deutsch lernte, entdeckte ich zufällig den Psychologen Carl Gustav Jung. Seine Zitate hatten einen großen Einfluss auf unser Leben. Zum Beispiel: "Wer nach außen schaut, träumt. Wer nach innen schaut, erwacht." Das ist etwas, was ich mein ganzes Leben lang nicht vergessen werde.
 ## Lernmethode
-Meine Lernmethode basiert auf Projekten. Das heißt, anfangs tendiere ich eher dazu, das Ganze zu verstehen, anstatt mich auf ein bestimmtes Detail zu beschränken. Dann werde ich mich auf Details konzentrieren und wiederholen, um das Gelernte zu vertiefen.
+Meine Lernmethode basiert auf Projekten. Das heißt, anfangs tendiere ich eher dazu, das **Ganze** zu verstehen, anstatt mich auf ein bestimmtes Detail zu beschränken. Dann werde ich mich auf **Details** konzentrieren und **wiederholen**, um das Gelernte zu **vertiefen**.
 ## Abteilung  
 Ich habe keine tiefe Kenntnisse über die verschiedenen Abteilungen in deutschen Krankenhäusern. 
-Anfangs werde ich flexibel in der angegebenen Abteilung gemäß den Bedürfnissen des Krankenhauses arbeiten, später könnte ich dazu neigen, in einer bestimmten Abteilung zu arbeiten. Unabhängig von der Abteilung werde ich immer verantwortungsvoll arbeiten und hochwertige Pflegedienstleistungen anbieten.
+**Anfangs** werde ich **flexibel** in der angegebenen Abteilung gemäß den Bedürfnissen des Krankenhauses arbeiten, **später** könnte ich dazu **neigen**, in einer bestimmten Abteilung zu arbeiten. Unabhängig von der Abteilung werde ich immer verantwortungsvoll arbeiten und hochwertige Pflegedienstleistungen anbieten.
 ## Umgang mit Stress 
 Um Stress abzubauen, nehme ich zunächst drei tiefe Atemzüge, dann setze ich klare Prioritäten und zerlege große Ziele in kleinere Schritte. Dadurch kann ich den Kopf ausschalten und den Aufgaben neu orientieren. Wenn ich ein Problem nicht selbst lösen kann, suche ich Hilfe bei erfahrenen Kollegen und Vorgesetzten.
 ## Herausforderungen
@@ -103,7 +103,8 @@ Aus meiner Sicht gibt es zwei Belastungen, körperliche und seelische Belastunge
 a)Körperlich gesehen, besonders am Anfang, ist es nicht einfach, jeden Tag lange Stunden stehend zu verbringen und oft Nachtschichten zu machen. Dazu kommt auch das Risiko einer Infektion bei der Arbeit. 
 b)Auf der seelischen Seite, macht es mich sehr traurig, wenn Patienten sterben, da ich eine sehr einfühlsame Person bin.
 ## Welche persönlichen beruflichen Ziele haben Sie?
-Als Erstes möchte ich meine Ausbildung erfolgreich abschließen. Langfristig gesehen hoffe ich, dass ich nach der Ausbildung Deutsch auf dem Niveau C1 erreichen kann und wenn alles gut läuft, würde ich gerne als Pflegefachmann in einer bestimmten Abteilung in dem Unternehmen weiterarbeiten.
+a)Als Erstes möchte ich meine Ausbildung erfolgreich abschließen.  
+b)Langfristig gesehen hoffe ich, dass ich nach der Ausbildung Deutsch auf dem Niveau C1 erreichen kann und wenn alles gut läuft, würde ich gerne als Pflegefachmann in einer bestimmten Abteilung in dem Unternehmen weiterarbeiten.
 # Erfolge
 ## Selbstständig Deutsch lernen
 Als Lerner des VHS-Lernportals, einer kostenlosen Plattform aus Deutschland, möchte ich mich für die Entwicklung bedanken. Das Portal bietet nicht nur Alltagsdeutsch bis zum Niveau B1, sondern auch einen beruflichen B2-Deutschkurs.  
@@ -121,8 +122,8 @@ Diese Frage soll Einblicke in die Problemlösungsfähigkeiten, Konfliktlösungsk
 ## Wo sehen Sie sich in fünf Jahren beruflich?
 Durch diese Frage möchte der Arbeitgeber mehr über die langfristigen beruflichen Ziele und Ambitionen des Bewerbers erfahren. Sie ermöglicht es dem Arbeitgeber, einzuschätzen, ob der Bewerber langfristig in das Unternehmen passen und sich weiterentwickeln könnte, und ob seine Ziele mit den Entwicklungsmöglichkeiten innerhalb des Unternehmens übereinstimmen.
 # Nachfrage 
-Q1:Wie sieht die Betreuung während der Ausbildung aus? Wer sind die Ansprechpartner bei Fragen oder Problemen?   
-Q2:Wie groß sind die Chancen, nach der Ausbildung in Ihrem Unternehmen weiterarbeiten zu können?
+a)Wie sieht die Betreuung während der Ausbildung aus? Wer sind die Ansprechpartner bei Fragen oder Problemen?   
+b)Wie groß sind die Chancen, nach der Ausbildung in Ihrem Unternehmen weiterarbeiten zu können?
 # Endung
 Keine Frage mehr. Vielen Dank, dass Sie sich die Zeit genommen haben. Und ich wünsche Ihnen einen schönen Tag.
 # Tipps
