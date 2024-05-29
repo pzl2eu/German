@@ -99,8 +99,9 @@ Anfangs werde ich flexibel in der angegebenen Abteilung gemäß den Bedürfnisse
 ## Umgang mit Stress 
 Um Stress abzubauen, nehme ich zunächst drei tiefe Atemzüge, dann setze ich klare Prioritäten und zerlege große Ziele in kleinere Schritte. Dadurch kann ich den Kopf ausschalten und den Aufgaben neu orientieren. Wenn ich ein Problem nicht selbst lösen kann, suche ich Hilfe bei erfahrenen Kollegen und Vorgesetzten.
 ## Herausforderungen
-Körperlich gesehen, besonders am Anfang, ist es nicht einfach, jeden Tag lange Stunden stehend zu verbringen und oft Nachtschichten zu machen. Dazu kommt auch das Risiko einer Infektion bei der Arbeit. 
-Auf der seelischen Seite, macht es mich sehr traurig, wenn Patienten sterben, da ich eine sehr einfühlsame Person bin.
+Aus meiner Sicht gibt es zwei Belastungen, körperliche und seelische Belastungen.  
+a)Körperlich gesehen, besonders am Anfang, ist es nicht einfach, jeden Tag lange Stunden stehend zu verbringen und oft Nachtschichten zu machen. Dazu kommt auch das Risiko einer Infektion bei der Arbeit. 
+b)Auf der seelischen Seite, macht es mich sehr traurig, wenn Patienten sterben, da ich eine sehr einfühlsame Person bin.
 ## Welche persönlichen beruflichen Ziele haben Sie?
 Als Erstes möchte ich meine Ausbildung erfolgreich abschließen. Langfristig gesehen hoffe ich, dass ich nach der Ausbildung Deutsch auf dem Niveau C1 erreichen kann und wenn alles gut läuft, würde ich gerne als Pflegefachmann in einer bestimmten Abteilung in dem Unternehmen weiterarbeiten.
 # Erfolge
