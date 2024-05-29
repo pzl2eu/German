@@ -115,7 +115,7 @@ Diese Frage soll Einblicke in die Problemlösungsfähigkeiten, Konfliktlösungsk
 ## Wo sehen Sie sich in fünf Jahren beruflich?
 Durch diese Frage möchte der Arbeitgeber mehr über die langfristigen beruflichen Ziele und Ambitionen des Bewerbers erfahren. Sie ermöglicht es dem Arbeitgeber, einzuschätzen, ob der Bewerber langfristig in das Unternehmen passen und sich weiterentwickeln könnte, und ob seine Ziele mit den Entwicklungsmöglichkeiten innerhalb des Unternehmens übereinstimmen.
 # Nachfrage 
-Q1:Wie sieht die Betreuung während der Ausbildung aus? Wer sind die Ansprechpartner bei Fragen oder Problemen? 
+Q1:Wie sieht die Betreuung während der Ausbildung aus? Wer sind die Ansprechpartner bei Fragen oder Problemen?   
 Q2:Wie groß sind die Chancen, nach der Ausbildung in Ihrem Unternehmen weiterarbeiten zu können?
 # Endung
 Keine Frage mehr. Vielen Dank, dass Sie sich die Zeit genommen haben. Und ich wünsche Ihnen einen schönen Tag.
