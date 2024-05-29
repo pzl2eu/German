@@ -21,7 +21,9 @@ Respektieren und hören Sie auf die Bedürfnisse und Gefühle der Patienten und 
 **Psychische Stabilität** (z.B. im Umgang mit schwer kranken oder sterbenden Patienten)
 Selbstfürsorge
 ## Was machen sie zur Zeit?
-## Engagieren Sie sich zurzeit sozial in irgendeiner Weise? 
+Zur Zeit helfe ich in dem kleinen Restaurant meines Bruders mit einigen einfachen Aufgaben, wie das Überprüfen der Rechnungen, das Reinigen der Tische und des Bodens.
+## Engagieren Sie sich zurzeit sozial in irgendeiner Weise?
+
 # Motivation
 ## Was sagt ihre Familie dazu, dass sie nach Deutschland gehen?
 Meine Eltern sind dafür, dass ich in Zukunft als Pflegefachmann in Deutschland arbeiten. Sie haben jedoch auch Bedenken um die Sicherheit geäußert, weil sie nur ein bisschen über Deutschland wissen. Dazu habe ich viele Erfahrungsbeiträge von chinesischen Menschen in Deutschland im Internet gelesen, so kann ich ein umfassendes Bild von Deutschland bekommen und dann kann ich mich leichter in die deutsche Gesellschaft integrieren.
