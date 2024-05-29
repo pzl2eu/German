@@ -19,6 +19,7 @@ Ich bin **aufgeschlossen** und überzeugt, dass viele Dinge nicht durch Ursache-
 **Einfühlungsvermögen** und **Kontaktfähigkeit** (z.B. im Umgang mit Patienten und Angehörigen)
 Respektieren und hören Sie auf die Bedürfnisse und Gefühle der Patienten und ihrer Familien, und versuchen Sie, ihre Situation und Emotionen zu verstehen. Kommunizieren Sie mit ihnen in klarer Sprache, bieten Sie emotionale und substantielle Unterstützung an und helfen Sie ihnen, die Herausforderungen im Krankheits- und Behandlungsprozess zu bewältigen.
 **Psychische Stabilität** (z.B. im Umgang mit schwer kranken oder sterbenden Patienten)
+
 Selbstfürsorge
 ## Was machen sie zur Zeit?
 Zur Zeit helfe ich in dem kleinen Restaurant meines Bruders mit einigen einfachen Aufgaben, wie das Überprüfen der Rechnungen, das Reinigen der Tische und des Bodens.
