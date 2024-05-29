@@ -71,7 +71,7 @@ Wenn meine persönliche Situation es erlaubt und die Arbeit es erfordert, bin ic
 ## Erfahrungen
 Bis jetzt habe ich noch keine Erfahrungen im Pflegebereich gesammelt. Aber ich hatte eine Erfahrung mit meiner Cousine. Sie ist 50 Jahre alt und hatte eine Operation wegen eines Tumors. Während sie sich danach zu Hause erholte, spürte sie einige Nebenwirkungen und fürchtete den Tod. Daher begann sie, selbst Psychologie zu lernen und ich besuchte sie jede Woche zu Hause, um sie zu begleiten und über Psychologie zu reden. Später, als ich Deutsch lernte, entdeckte ich zufällig den Psychologen Carl Gustav Jung. Seine Zitate hatten einen großen Einfluss auf unser Leben. Zum Beispiel: "Wer nach außen schaut, träumt. Wer nach innen schaut, erwacht." Das ist etwas, was ich mein ganzes Leben lang nicht vergessen werde.
 ## Lernmethode
-Ich denke, es gibt nicht die perfekte Lernmethode. Um die besten Ergebnisse zu erzielen, muss man die Selbstlern- und Gruppenlernmethoden kombinieren. Beim Selbstlernen kann man das lernen, was er vertiefen muss. Beim Gruppenlernen kann man durch den Austausch von verschiedenen Aspekten etwas Neues beherrschen.
+Meine Lernmethode basiert auf Projekten. Das heißt, anfangs tendiere ich eher dazu, das Ganze zu verstehen, anstatt mich auf ein bestimmtes Detail zu beschränken. Dann werde ich mich auf Details konzentrieren und wiederholen, um das Gelernte zu vertiefen.
 ## Team  
 Ich glaube, ein Team ist wie ein Spiegel, der mir hilft, mich selbst in der Arbeit klarer zu sehen. Wir machen oft unbewusst Fehler, ohne sie zu bemerken. Mitarbeiter können mir helfen, sodass ich mich selbst verbessern und dann Wert für das Team schaffen kann.
 ## Abteilung  
