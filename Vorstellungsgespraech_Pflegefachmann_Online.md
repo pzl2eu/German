@@ -56,7 +56,14 @@ Wenn ich jemandem Essen geben müsste, würde ich bestimmten Schritten folgen, u
 4) Schritt vier - Füttern: Wenn nötig, würde ich helfen, das Essen zu füttern. Dabei würde ich kleinere Bissen geben und sicherstellen, dass sie genügend Zeit zum Kauen und Schlucken haben.
 5) Schritt fünf - Nach dem Essen: Nach dem Essen würde ich helfen, den Bereich sauber zu halten und sicherzustellen, dass die Person bequem ist und alle benötigten Getränke oder Nachspeisen hat.
 Jeder Schritt würde mit Rücksichtnahme und Geduld durchgeführt werden, um das bestmögliche Esserlebnis für die Person zu gewährleisten.
-## Stellen Sie sich vor, Sie müssten einem Patienten beim Waschen helfen, wie würden Sie das machen und worauf würden Sie es machen? 
+## Stellen Sie sich vor, Sie müssten einem Patienten beim Waschen helfen, wie würden Sie das machen und worauf würden Sie es machen?
+Beim Helfen eines Patienten beim Waschen sollte sowohl die Würde als auch der Komfort des Patienten gewahrt bleiben. Hier sind die Schritte, die ich folgen würde:
+1) Schritt eins – Vorbereitung: Ich würde sicherstellen, dass alles, was ich zum Waschen benötige, in Reichweite ist - inklusive Handtücher, Waschlappen und Seife. Dann würde ich die Privatsphäre des Patients sicherstellen, indem ich die Tür und Vorhänge schließe.
+2) Schritt zwei – Kommunikation: Ich würde den Patienten über den gesamten Prozess informieren und sicherstellen, dass er damit einverstanden ist.
+3) Schritt drei – Waschen: Ich würde mit dem Gesicht anfangen und mich dann zum Rest des Körpers vorarbeiten. Sanft und systematisch, um keinen Bereich zu übersehen. 
+4) Schritt vier - Abspülen und Trocknen: Danach würde ich sicher gehen, dass keine Seife mehr auf der Haut des Patienten ist und sie anschließend mit einem Handtuch trocken tupfen, nicht reiben.
+5) Letzter Schritt - Komfort: Nach dem Waschen würde ich jede nötige Hilfe beim Anziehen anbieten und dafür sorgen, dass der Patient sich wohl und gepflegt fühlt.
+Jeder Moment dieser Pflege würde mit größter Achtung und Sorgfalt durchgeführt werden. 
 ## Arbeitszeiten
 Als Pflegefachmann arbeite ich **38 bis 40 Stunden** pro Woche im **Schichtdienst**, da Patienten **rund um die Uhr** auf Hilfe angewiesen sind, arbeite ich auch **nachts, am Wochenende sowie an Feiertagen**. Als Ausgleich dafür habe ich dann an einem anderen **Wochentag** frei.  
 ## Lerninhalt
