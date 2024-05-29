@@ -27,10 +27,6 @@ Kochen, Hausarbeit erledigen, dem Neffen bei den Hausaufgaben helfen.
 # Motivation
 ## Was sagt ihre Familie dazu, dass sie nach Deutschland gehen?
 Meine Eltern sind dafür, dass ich in Zukunft als Pflegefachmann in Deutschland arbeiten. Sie haben jedoch auch Bedenken um die Sicherheit geäußert, weil sie nur ein bisschen über Deutschland wissen. Dazu habe ich viele Erfahrungsbeiträge von chinesischen Menschen in Deutschland im Internet gelesen, so kann ich ein umfassendes Bild von Deutschland bekommen und dann kann ich mich leichter in die deutsche Gesellschaft integrieren.
-## Nach Innen schauen
-Nach der Kündigung habe ich gemerkt, dass ich innere Bedürfnisse, verfolgen muss, sonst werde ich wieder unglücklich bei der Arbeit.
-## Was ist für Sie eine gute Schicht?
-Für mich als Pflegefachmann ist eine gute Schicht eine, in der ich effektiv und effizient arbeiten kann, um die bestmögliche Pflege für meine Patienten zu gewährleisten. Dies beinhaltet eine geruhsame Umgebung, eine gute Kommunikation im Team, genügend Zeit für jeden Patienten und die Möglichkeit, alle geplanten Aufgaben ohne unnötige Unterbrechungen zu erledigen. Es ist auch wichtig, dass ich am Ende der Schicht das Gefühl habe, dass ich einen positiven Einfluss auf das Wohlergehen meiner Patienten hatte.
 ## Qualität
 Die Pflegeausbildung in **Deutschland** gehört zur Weltspitze. Dadurch kann man nicht nur **Berufserfahrung sammeln**, sondern auch einige **Vergütungen erhalten**, um den eigenen Alltag zu finanzieren.
 ## Sinn
@@ -67,7 +63,11 @@ Beim Helfen eines Patienten beim Waschen sollte sowohl die Würde als auch der K
 5) Letzter Schritt - Komfort: Nach dem Waschen würde ich jede nötige Hilfe beim Anziehen anbieten und dafür sorgen, dass der Patient sich wohl und gepflegt fühlt.
 Jeder Moment dieser Pflege würde mit größter Achtung und Sorgfalt durchgeführt werden. 
 ## Arbeitszeiten
-Als Pflegefachmann arbeite ich **38 bis 40 Stunden** pro Woche im **Schichtdienst**, da Patienten **rund um die Uhr** auf Hilfe angewiesen sind, arbeite ich auch **nachts, am Wochenende sowie an Feiertagen**. Als Ausgleich dafür habe ich dann an einem anderen **Wochentag** frei.  
+Als Pflegefachmann arbeite ich **38 bis 40 Stunden** pro Woche im **Schichtdienst**, da Patienten **rund um die Uhr** auf Hilfe angewiesen sind, arbeite ich auch **nachts, am Wochenende sowie an Feiertagen**. Als Ausgleich dafür habe ich dann an einem anderen **Wochentag** frei. 
+## Überstuden
+Wenn meine persönliche Situation es erlaubt und die Arbeit es erfordert, bin ich bereit, in Maßen Überstunden zu machen.
+## Was ist für Sie eine gute Schicht?
+Für mich als Pflegefachmann ist eine gute Schicht eine, in der ich effektiv und effizient arbeiten kann, um die bestmögliche Pflege für meine Patienten zu gewährleisten. Dies beinhaltet eine geruhsame Umgebung, eine gute Kommunikation im Team, genügend Zeit für jeden Patienten und die Möglichkeit, alle geplanten Aufgaben ohne unnötige Unterbrechungen zu erledigen. Es ist auch wichtig, dass ich am Ende der Schicht das Gefühl habe, dass ich einen positiven Einfluss auf das Wohlergehen meiner Patienten hatte.
 ## Lerninhalt
 Grundlagen zum Ausbildungsstart  
 Unterstützung der Patienten bei Bewegung und Selbstversorgung  
@@ -80,20 +80,18 @@ Begleitung von Patienten in der letzten Lebensphase
 Unterstützung der Patienten bei der Lebensgestaltung  
 Pflege von Kindern und Jugendlichen  
 Pflege von Patienten mit psychischen Problemen
-## Arbeiten Sie gerne in Lerngruppen oder arbeiten Sie lieber alleine?
-Teamarbeit und alleiniges Arbeiten haben jeweils ihre Vorzüge, welche Methode gewählt wird, hängt von der spezifischen Arbeitssituation ab.
-## Stadt/Unternehmen/Kultur/Produkte  
-Die Stadt Paderborn ist mit über 156.000 Einwohnern (Stand 2023)[2] eine Großstadt im östlichen Teil des Landes Nordrhein-Westfalen.
-## Überstuden
-Wenn meine persönliche Situation es erlaubt und die Arbeit es erfordert, bin ich bereit, in Maßen Überstunden zu machen.
-## Erfahrungen
-Bis jetzt habe ich noch keine Erfahrungen im Pflegebereich gesammelt. Aber ich hatte eine Erfahrung mit meiner Cousine. Sie ist 50 Jahre alt und hatte eine Operation wegen eines Tumors. Während sie sich danach zu Hause erholte, spürte sie einige Nebenwirkungen und fürchtete den Tod. Daher begann sie, selbst Psychologie zu lernen und ich besuchte sie jede Woche zu Hause, um sie zu begleiten und über Psychologie zu reden. Später, als ich Deutsch lernte, entdeckte ich zufällig den Psychologen Carl Gustav Jung. Seine Zitate hatten einen großen Einfluss auf unser Leben. Zum Beispiel: "Wer nach außen schaut, träumt. Wer nach innen schaut, erwacht." Das ist etwas, was ich mein ganzes Leben lang nicht vergessen werde.
-## Lernmethode
-Meine Lernmethode basiert auf Projekten. Das heißt, anfangs tendiere ich eher dazu, das Ganze zu verstehen, anstatt mich auf ein bestimmtes Detail zu beschränken. Dann werde ich mich auf Details konzentrieren und wiederholen, um das Gelernte zu vertiefen.
 ## Mögen Sie ein großes oder ein kleines Team bei der Arbeit ?
 Ich würde gerne im kleinen Team abrbeiten.
 a)Erstens ist die Kommunikation zwischen den Teammitgliedern in kleineren Gruppen oft direkter und effizienter, was dazu beiträgt, die Arbeit schneller zu erledigen.
 b)In kleineren Teams übernehmen Mitglieder oft mehr Verantwortung und haben die Chance, vielfältigere Aufgaben zu übernehmen. Dies kommt meiner persönlichen Weiterentwicklung und meiner beruflichen Entwicklung zugute.
+## Arbeiten Sie gerne in Lerngruppen oder arbeiten Sie lieber alleine?
+Teamarbeit und alleiniges Arbeiten haben jeweils ihre Vorzüge, welche Methode gewählt wird, hängt von der spezifischen Arbeitssituation ab.
+## Stadt/Unternehmen/Kultur/Produkte  
+Die Stadt Paderborn ist mit über 156.000 Einwohnern (Stand 2023)[2] eine Großstadt im östlichen Teil des Landes Nordrhein-Westfalen.
+## Erfahrungen
+Bis jetzt habe ich noch keine Erfahrungen im Pflegebereich gesammelt. Aber ich hatte eine Erfahrung mit meiner Cousine. Sie ist 50 Jahre alt und hatte eine Operation wegen eines Tumors. Während sie sich danach zu Hause erholte, spürte sie einige Nebenwirkungen und fürchtete den Tod. Daher begann sie, selbst Psychologie zu lernen und ich besuchte sie jede Woche zu Hause, um sie zu begleiten und über Psychologie zu reden. Später, als ich Deutsch lernte, entdeckte ich zufällig den Psychologen Carl Gustav Jung. Seine Zitate hatten einen großen Einfluss auf unser Leben. Zum Beispiel: "Wer nach außen schaut, träumt. Wer nach innen schaut, erwacht." Das ist etwas, was ich mein ganzes Leben lang nicht vergessen werde.
+## Lernmethode
+Meine Lernmethode basiert auf Projekten. Das heißt, anfangs tendiere ich eher dazu, das Ganze zu verstehen, anstatt mich auf ein bestimmtes Detail zu beschränken. Dann werde ich mich auf Details konzentrieren und wiederholen, um das Gelernte zu vertiefen.
 ## Abteilung  
 Ich habe keine tiefe Kenntnisse über die verschiedenen Abteilungen in deutschen Krankenhäusern. 
 Anfangs werde ich flexibel in der angegebenen Abteilung gemäß den Bedürfnissen des Krankenhauses arbeiten, später könnte ich dazu neigen, in einer bestimmten Abteilung zu arbeiten. Unabhängig von der Abteilung werde ich immer verantwortungsvoll arbeiten und hochwertige Pflegedienstleistungen anbieten.
