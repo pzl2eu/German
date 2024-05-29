@@ -41,8 +41,8 @@ Ich lege mehr Wert auf Work-Life-Balance, da es tatsächlich dazu beitragen kann
 Wie allgemein bekannt ist, ist das **Sozialversicherungssystem** in Deutschland sehr attraktiv für diejenigen, die stabil in Deutschland arbeiten und leben möchten.
 ## Freund
 Für einen Ausländer ist es definitiv eine herausfordernde Aufgabe, zum ersten Mal in Deutschland zu arbeiten. Mit der Hilfe von meinem Freund können alle Problemen, die im Leben auftreten, zeitnah und angemessen gelöst werden, so dass ich mich intensiver auf meine Arbeit konzentrieren kann.
-## Wohnort
-Aus meiner Erfahrung kann ich sagen, dass ich schätze Ruhe, Natur und frische Luft am meisten.
+## Umweltschutz
+Deutschland ist ein sehr umweltbewusstes Land, ich schätze seine Ruhe, die Natur und die frische Luft.
 # Beruf/Arbeit
 ## Übersicht
 Die Ausbildung zum Pflegefachmann dauert in Vollzeit **drei Jahre**. Sie besteht aus 2 Teilen: 2100 Stunden **Theorie** und 2500 Stunden **Praxis**. Theoriephasen an der Schule wechseln sich mit Praxisphasen in verschiedenen Pflegeeinrichtungen 4 bis 6 Wochen ab. Durch die generalistische Ausrichtung kann man auch alle Pflegebereiche kennenlernen: Altenheim (stationäre Pflege), Krankenhaus (akute Pflege) und Pflegedienst (ambulante Pflege). Nach Abschluss der Ausbildung legt man die staatliche Prüfung zum Pflegefachmann ab.
