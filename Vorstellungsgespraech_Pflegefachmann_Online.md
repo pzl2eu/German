@@ -14,10 +14,11 @@ Nun habe ich das **Goethe-Zertifikat** B1 erfolgreich erworben und die Teile Spr
 ## Hobbys 
 Mein Hobby ist es, mit Freunden Melodien zu summen und die Natur zu genießen. Dadurch könnten wir Stress abbauen und unsere Akkus aufladen.
 ## Stärken & Schwächen
-**aufgeschlossen**
+- **aufgeschlossen**  
 a)Im Leben habe ich immer eine positive Einstellung zur Erfahrung verschiedener Kulturen. Ich genieße es, mich mit Menschen aus verschiedenen Hintergründen und Bereichen auszutauschen, deren unterschiedliche Denkweisen und Perspektiven mir stets neue Anregungen und Freude bereiten.   
-b)In der Arbeit behalte ich stets eine offene Einstellung, um neue Ideen und Herausforderungen anzunehmen. Zum Beispiel optimiere ich ständig meine Arbeitsabläufe im täglichen Arbeitsleben, um meine Aufgaben besser erfüllen zu können.
-b)Ich bin **lernbereit**. Das heisst, ich möchte gerne in meiner Freizeit die Deutschkenntnisse für Beruf, Alltag und Pflege ständig vertiefen.  
+b)In der Arbeit behalte ich stets eine offene Einstellung, um neue Ideen und Herausforderungen anzunehmen. Zum Beispiel optimiere ich ständig meine Arbeitsabläufe im täglichen Arbeitsleben, um meine Aufgaben besser erfüllen zu können.  
+- **lernbereit**  
+Das heisst, ich möchte gerne in meiner Freizeit die Deutschkenntnisse für Beruf, Alltag und Pflege ständig vertiefen.  
 c)Manchmal bin ich **selbstkritisch**. Zum Beispiel muss ich jeden Tag bestimmte Ziele beim Deutschlernen erreichen, ansonsten schlafe ich später ein. Jetzt habe ich erkannt, dass Nachhaltigkeit, also meine eigene Gesundheit, für langfristige Ziele besser ist.
 ## Persönlichkeit(Was denken Sie denn, welche Werte und welche Einstellungen sollte ein Mensch haben, wenn er in der Pflege arbeiten möchte?)
 **Einfühlungsvermögen** und **Kontaktfähigkeit** (z.B. im Umgang mit Patienten und Angehörigen)
