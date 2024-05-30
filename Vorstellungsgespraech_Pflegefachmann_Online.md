@@ -4,7 +4,8 @@ Vielen Dank für die Einladung. Ehrlich gesagt bin ich ein bisschen aufgeregt un
 ## Über mich  
 Mein Name ist Pengzhao Luo und ich komme aus Baoding, einer Stadt nicht weit von Peking entfernt.  
 ## Höchster Bildungsabschluss  
-Im Jahr 2022 habe ich meinen Bachelor in **Geoinformatik**, einem ingenieurwissenschaftlichen Fach, an der **Shanghai Ocean University** abgeschlossen. Kurz vor dem Abschluss habe ich erfahren, dass viele Menschen in Shanghai aufgrund von **Corona** ohne ausreichende Pflegeleistungen gelitten haben. In Pflegeeinrichtungen gab es nicht genügend Betten und Pflegefachleute, um Kindern und älteren Menschen mit chronischen Krankheiten Pflegeversorgungen anzubieten. Während dieser Zeit war das Schlimmste für mich, dass ich manchmal Leute mit Schutzkleidung sah, die verstorbene ältere Menschen aus Wohngebieten holten. So habe ich die Bedeutung von Pflege erkannt. 
+- Im Jahr 2022 habe ich meinen Bachelor in **Geoinformatik**, einem ingenieurwissenschaftlichen Fach, an der **Shanghai Ocean University** abgeschlossen.
+- Kurz vor dem Abschluss habe ich erfahren, dass viele Menschen in Shanghai aufgrund von **Corona** ohne ausreichende Pflegeleistungen gelitten haben. In Pflegeeinrichtungen gab es nicht genügend Betten und Pflegefachleute, um Kindern und älteren Menschen mit chronischen Krankheiten Pflegeversorgungen anzubieten. Während dieser Zeit war das Schlimmste für mich, dass ich manchmal Leute mit Schutzkleidung sah, die verstorbene ältere Menschen aus Wohngebieten holten. So habe ich die Bedeutung von Pflege erkannt. 
 ## Berufserfahrungen  
 - Bisher habe ich als Technik-Künstler und als Geschäftsmitarbeiter gearbeitet. Ich habe jedoch festgestellt, dass dieser Job nicht zu meiner Persönlichkeit passt. Obwohl er viel Geld einbringen könnte, möchte ich lieber eine körperliche Stelle suchen, bei der ich mit anderen kommunizieren kann, anstatt lange Stunden im Büro vor dem Computer zu sitzen. Also habe ich beschlossen, mich beruflich neu zu orientieren.  
 - Dann wurde die Frau meines Freundes schwanger, und da im Laden Personal fehlte, habe ich ausgeholfen, um etwas Geld zu verdienen. Von dieser Zeit an begann ich, die Voraussetzungen als Pflegefachmann in China zu recherchieren. Dabei habe ich festgestellt, dass die meisten Pflegeeinrichtungen mindestens einen Bachelor-Abschluss verlangen, weil da es jedes Jahr immer viele Absolventen und nicht mehr neue Arbeitsplätze gibt.  
@@ -67,19 +68,19 @@ Wenn ich jemandem Essen geben müsste, würde ich bestimmten Schritten folgen, u
 Jeder Schritt würde mit Rücksichtnahme und Geduld durchgeführt werden, um das bestmögliche Esserlebnis für die Person zu gewährleisten.
 ## Stellen Sie sich vor, Sie müssten einem Patienten beim Waschen helfen, wie würden Sie das machen und worauf würden Sie es machen?
 Beim Helfen eines Patienten beim Waschen sollte sowohl die Würde als auch der Komfort des Patienten gewahrt bleiben. Hier sind die Schritte, die ich folgen würde:
-1) Schritt eins – Vorbereitung: Ich würde sicherstellen, dass alles, was ich zum Waschen benötige, in Reichweite ist - inklusive Handtücher, Waschlappen und Seife. Dann würde ich die Privatsphäre des Patients sicherstellen, indem ich die Tür und Vorhänge schließe.
-2) Schritt zwei – Kommunikation: Ich würde den Patienten über den gesamten Prozess informieren und sicherstellen, dass er damit einverstanden ist.
-3) Schritt drei – Waschen: Ich würde mit dem Gesicht anfangen und mich dann zum Rest des Körpers vorarbeiten. Sanft und systematisch, um keinen Bereich zu übersehen. 
-4) Schritt vier - Abspülen und Trocknen: Danach würde ich sicher gehen, dass keine Seife mehr auf der Haut des Patienten ist und sie anschließend mit einem Handtuch trocken tupfen, nicht reiben.
-5) Letzter Schritt - Komfort: Nach dem Waschen würde ich jede nötige Hilfe beim Anziehen anbieten und dafür sorgen, dass der Patient sich wohl und gepflegt fühlt.
+1.Vorbereitung: Ich würde sicherstellen, dass alles, was ich zum Waschen benötige, in Reichweite ist - inklusive Handtücher, Waschlappen und Seife. Dann würde ich die Privatsphäre des Patients sicherstellen, indem ich die Tür und Vorhänge schließe.
+2.Kommunikation: Ich würde den Patienten über den gesamten Prozess informieren und sicherstellen, dass er damit einverstanden ist.
+3.Waschen: Ich würde mit dem Gesicht anfangen und mich dann zum Rest des Körpers vorarbeiten. Sanft und systematisch, um keinen Bereich zu übersehen. 
+4.Abspülen und Trocknen: Danach würde ich sicher gehen, dass keine Seife mehr auf der Haut des Patienten ist und sie anschließend mit einem Handtuch trocken tupfen, nicht reiben.
+5.Komfort: Nach dem Waschen würde ich jede nötige Hilfe beim Anziehen anbieten und dafür sorgen, dass der Patient sich wohl und gepflegt fühlt.
 Jeder Moment dieser Pflege würde mit größter Achtung und Sorgfalt durchgeführt werden.
 ## Wie würden Sie mit Konflikten am Arbeitsplatz umgehen?
 Bei Konflikten am Arbeitsplatz würde ich als Pflegefachmann normalerweise die folgenden Schritte verfolgen:  
-a)Ruhe und Professionalität bewahren: Selbst in Konflikten ist es wichtig, ruhig und professionell zu bleiben. Durch tiefe Atmung und Vermeidung von sofortigen Reaktionen wird stets Priorität auf die Patientenpflege gelegt.  
-b)Kommunikation: Gehen Sie auf den anderen zu und äußern Sie Ihre Meinung und Gefühle. Versuchen Sie, Sätze mit "Ich" anstatt "Du" zu formulieren, um Anschuldigungen zu vermeiden, zum Beispiel "Ich fühle mich verwirrt, wenn..." und nicht "Du bringst mich dazu..."  
-c)Zuhören: Es ist auch wichtig, die Ansichten der anderen zu verstehen. Ihre Ansichten könnten unterschiedlich sein, aber Zuhören hilft, ihre Position besser zu verstehen.  
-d)Lösungsstrategien finden: Finden Sie einen Weg, den Konflikt zu lösen, oder suchen Sie gegebenenfalls Hilfe von Vorgesetzten oder der Personalabteilung.  
-e)Wachsen und Lernen: Lernen und wachsen Sie aus jedem Konflikt. Analysieren Sie die Situation, um die Ursache des Problems zu finden und zukünftige Konflikte zu vermeiden.
+1.Ruhe und Professionalität bewahren: Selbst in Konflikten ist es wichtig, ruhig und professionell zu bleiben. Durch tiefe Atmung und Vermeidung von sofortigen Reaktionen wird stets Priorität auf die Patientenpflege gelegt.  
+2.Kommunikation: Gehen Sie auf den anderen zu und äußern Sie Ihre Meinung und Gefühle. Versuchen Sie, Sätze mit "Ich" anstatt "Du" zu formulieren, um Anschuldigungen zu vermeiden, zum Beispiel "Ich fühle mich verwirrt, wenn..." und nicht "Du bringst mich dazu..."  
+3.Zuhören: Es ist auch wichtig, die Ansichten der anderen zu verstehen. Ihre Ansichten könnten unterschiedlich sein, aber Zuhören hilft, ihre Position besser zu verstehen.  
+4.Lösungsstrategien finden: Finden Sie einen Weg, den Konflikt zu lösen, oder suchen Sie gegebenenfalls Hilfe von Vorgesetzten oder der Personalabteilung.  
+5.Wachsen und Lernen: Lernen und wachsen Sie aus jedem Konflikt. Analysieren Sie die Situation, um die Ursache des Problems zu finden und zukünftige Konflikte zu vermeiden.
 ## Arbeitszeiten
 Als Pflegefachmann arbeite ich **38 bis 40 Stunden** pro Woche im **Schichtdienst**, da Patienten **rund um die Uhr** auf Hilfe angewiesen sind, arbeite ich auch **nachts, am Wochenende sowie an Feiertagen**. Als Ausgleich dafür habe ich dann an einem anderen **Wochentag** frei. 
 ## Überstuden
@@ -123,8 +124,8 @@ Aus meiner Sicht gibt es zwei Belastungen, körperliche und seelische Belastunge
 a)Körperlich gesehen, besonders am Anfang, ist es nicht einfach, jeden Tag lange Stunden stehend zu verbringen und Nachtschichten zu machen. Ich glaube, dass eine **gesunde Ernährung**, **ausreichender Schlaf** und **häufige kurze Pausen** sehr wichtig sind.
 b)Auf der seelischen Seite, macht es mich sehr traurig, wenn Patienten sterben, da ich eine sehr einfühlsame Person bin.
 ## Welche persönlichen beruflichen Ziele haben Sie?
-a)Als Erstes möchte ich meine Ausbildung erfolgreich abschließen.  
-b)Langfristig gesehen hoffe ich, dass ich nach der Ausbildung Deutsch auf dem Niveau C1 erreichen kann und wenn alles gut läuft, würde ich gerne als Pflegefachmann in einer bestimmten Abteilung in dem Unternehmen weiterarbeiten.
+- Als Erstes möchte ich meine Ausbildung erfolgreich abschließen.  
+- Langfristig gesehen hoffe ich, dass ich nach der Ausbildung Deutsch auf dem Niveau C1 erreichen kann und wenn alles gut läuft, würde ich gerne als Pflegefachmann in einer bestimmten Abteilung in dem Unternehmen weiterarbeiten.
 # Erfolge
 ## Selbstständig Deutsch lernen
 Als Lerner des VHS-Lernportals, einer kostenlosen Plattform aus Deutschland, möchte ich mich für die Entwicklung bedanken. Das Portal bietet nicht nur Alltagsdeutsch bis zum Niveau B1, sondern auch einen beruflichen B2-Deutschkurs.  
