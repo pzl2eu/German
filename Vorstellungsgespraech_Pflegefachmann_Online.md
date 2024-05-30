@@ -28,7 +28,7 @@ Kochen, Hausarbeit erledigen, dem Neffen bei den Hausaufgaben helfen.
 ## Was sagt ihre Familie dazu, dass sie nach Deutschland gehen?
 Meine Eltern sind dafür, dass ich in Zukunft als Pflegefachmann in Deutschland arbeiten. Sie haben jedoch auch Bedenken um die Sicherheit geäußert, weil sie nur ein bisschen über Deutschland wissen. Dazu habe ich viele Erfahrungsbeiträge von chinesischen Menschen in Deutschland im Internet gelesen, so kann ich ein umfassendes Bild von Deutschland bekommen und dann kann ich mich leichter in die deutsche Gesellschaft integrieren.
 ## Qualität
-Die Pflegeausbildung in **Deutschland** gehört zur Weltspitze. Dadurch kann man nicht nur **Berufserfahrung sammeln**, sondern auch einige **Vergütungen erhalten**, um den eigenen Alltag zu finanzieren.
+Die Pflegeausbildung in **Deutschland** gehört zur Weltspitze. Dadurch kann man nicht nur **Berufsng sammeln**, sondern auch einige **Vergütungen erhalten**, um den eigenen Alltag zu finanzieren.
 ## Sinn
 Basierend auf dem christlichen Menschenbild kümmern sich Pflegefachkräfte um die Gesundheit der Patienten, indem sie kranke Menschen pflegen und alte Menschen auf dem letzten Stück ihres Lebens begleiten. Das finde ich sehr sinnvoll.
 ## Work-Life-Balance
@@ -71,7 +71,7 @@ Für mich als Pflegefachmann ist eine gute Schicht eine, in der ich effektiv und
 ## Lerninhalt
 Grundlagen zum Ausbildungsstart  
 Unterstützung der Patienten bei Bewegung und Selbstversorgung  
-Reflexion der Pflegerfahrung  
+Reflexion der Pflegng  
 Gesundheitsförderung und -prävention  
 Kurative Prozesse und Patientensicherheit  
 Handeln in Akutsituationen  
@@ -85,12 +85,12 @@ Ich würde gerne im kleinen Team abrbeiten.
 a)Erstens ist die Kommunikation zwischen den Teammitgliedern in kleineren Gruppen oft direkter und effizienter, was dazu beiträgt, die Arbeit schneller zu erledigen.
 b)In kleineren Teams übernehmen Mitglieder oft mehr Verantwortung und haben die Chance, vielfältigere Aufgaben zu übernehmen. Dies kommt meiner persönlichen Weiterentwicklung und meiner beruflichen Entwicklung zugute.
 ## Arbeiten Sie gerne in Lerngruppen oder arbeiten Sie lieber alleine?
-a)Durch Teamarbeit können Mitglieder ihre Ansichten und Ideen teilen und voneinander lernen. In diesem Prozess hat jeder die Möglichkeit, aus den Erfahrungen und dem Wissen anderer zu lernen und zu wachsen.  
+a)Durch Teamarbeit können Mitglieder ihre Ansichten und Ideen teilen und voneinander lernen. In diesem Prozess hat jeder die Möglichkeit, aus den ngen und dem Wissen anderer zu lernen und zu wachsen.  
 b)Darüber hinaus kann jedes Mitglied des Teams von seinem eigenen Standpunkt aus Lösungen für Probleme anbieten. Die Vielfalt an Lösungen kann dabei helfen, die beste Strategie zur Problemlösung zu finden.
 ## Stadt/Unternehmen/Kultur/Produkte  
 Die Stadt Paderborn ist mit über 156.000 Einwohnern eine Großstadt im östlichen Teil des Landes Nordrhein-Westfalen.
 ## Erfahrungen
-Bis jetzt habe ich noch keine Erfahrungen im Pflegebereich gesammelt. Aber ich hatte eine Erfahrung mit meiner Cousine. Sie ist 50 Jahre alt und hatte eine Operation wegen eines Tumors. Während sie sich danach zu Hause erholte, spürte sie einige Nebenwirkungen und fürchtete den Tod. Daher begann sie, selbst Psychologie zu lernen und ich besuchte sie jede Woche zu Hause, um sie zu begleiten und über Psychologie zu reden. Später, als ich Deutsch lernte, entdeckte ich zufällig den Psychologen Carl Gustav Jung. Seine Zitate hatten einen großen Einfluss auf unser Leben. Zum Beispiel: "Wer nach außen schaut, träumt. Wer nach innen schaut, erwacht." Das ist etwas, was ich mein ganzes Leben lang nicht vergessen werde.
+Bis jetzt habe ich noch keine Erfahrungen im Pflegebereich gesammelt. Aber ich hatte eine Erfahrung mit meiner Cousine. Sie hatte eine Operation wegen eines Tumors. Während sie sich danach zu Hause erholte, spürte sie einige Nebenwirkungen und fürchtete den Tod. Daher besuchte ich sie jede Woche, um sie zu begleiten, und erklärte ihr, dass die Angst vor dem Tod eine normale Reaktion ist. Ich schlug vor, ihre Gefühle mit Familie und Freunden zu teilen und deren Unterstützung zu suchen, damit sie sich nicht alleine fühlt.
 ## Lernmethode
 Meine Lernmethode basiert auf Projekten. Das heißt, anfangs tendiere ich eher dazu, das **Ganze** zu verstehen, anstatt mich auf ein bestimmtes Detail zu beschränken. Dann werde ich mich auf **Details** konzentrieren und **wiederholen**, um das Gelernte zu **vertiefen**.
 ## Abteilung  
@@ -98,7 +98,7 @@ Ich habe keine tiefe Kenntnisse über die verschiedenen Abteilungen in deutschen
 **Anfangs** werde ich **flexibel** in der angegebenen Abteilung gemäß den Bedürfnissen des Krankenhauses arbeiten, **später** könnte ich dazu **neigen**, in einer bestimmten Abteilung zu arbeiten. Unabhängig von der Abteilung werde ich immer verantwortungsvoll arbeiten und hochwertige Pflegedienstleistungen anbieten.
 ## Umgang mit Stress 
 Um Stress abzubauen, nehme ich zunächst drei tiefe Atemzüge, dann setze ich klare Prioritäten und zerlege große Ziele in kleinere Schritte. Dadurch kann ich den Kopf ausschalten und den Aufgaben neu orientieren. Wenn ich ein Problem nicht selbst lösen kann, suche ich Hilfe bei erfahrenen Kollegen und Vorgesetzten.
-## Herausforderungen
+## Herausforderungen & Gegenmassnahmen
 Aus meiner Sicht gibt es zwei Belastungen, körperliche und seelische Belastungen.  
 a)Körperlich gesehen, besonders am Anfang, ist es nicht einfach, jeden Tag lange Stunden stehend zu verbringen und oft Nachtschichten zu machen. Dazu kommt auch das Risiko einer Infektion bei der Arbeit. 
 b)Auf der seelischen Seite, macht es mich sehr traurig, wenn Patienten sterben, da ich eine sehr einfühlsame Person bin.
