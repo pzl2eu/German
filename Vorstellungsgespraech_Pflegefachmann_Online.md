@@ -59,11 +59,11 @@ Soweit ich weiß, haben Pflegefachkräfte vier Hauptaufgaben.
 - Letzter ist die **Dokumentation** von Pflegemaßnahmen. Dabei muss man Sorgfalt und Verantwortungsbewusstsein zeigen.
 ## Stellen Sie sich vor, Sie müssten etwas zu essen geben, wie würden Sie das machen und worauf würden Sie es machen? 
 Wenn ich jemandem Essen geben müsste, würde ich bestimmten Schritten folgen, um sicherzustellen, dass dies sowohl sicher als auch angenehm ist.
-1) Schritt 1 - Kommunikation: Zunächst würde ich herausfinden, welche besonderen Ernährungsbedürfnisse oder Vorlieben sie haben könnten. Das kann Allergien, Diätrestriktionen oder einfach Geschmackspräferenzen beinhalten.
-2) Schritt zwei - Vorbereitung des Essens: Ich würde das Essen frisch zubereiten und sicherstellen, dass es sauber ist. Wenn nötig, würde ich das Essen in kleinere Stücke schneiden oder auf eine Art zubereiten, die es erleichtert zu essen. Ich würde auch sicherstellen, dass das Essen nicht zu heiß oder zu kalt ist.
-3) Schritt drei - Servieren: Das Essen würde ich auf einem sauberen Teller oder in einer Schüssel servieren. Ich würde sicherstellen, dass die Person bequem sitzt und leicht auf das Essen zugreifen kann.
-4) Schritt vier - Füttern: Wenn nötig, würde ich helfen, das Essen zu füttern. Dabei würde ich kleinere Bissen geben und sicherstellen, dass sie genügend Zeit zum Kauen und Schlucken haben.
-5) Schritt fünf - Nach dem Essen: Nach dem Essen würde ich helfen, den Bereich sauber zu halten und sicherzustellen, dass die Person bequem ist und alle benötigten Getränke oder Nachspeisen hat.
+1.Schritt 1 - Kommunikation: Zunächst würde ich herausfinden, welche besonderen Ernährungsbedürfnisse oder Vorlieben sie haben könnten. Das kann Allergien, Diätrestriktionen oder einfach Geschmackspräferenzen beinhalten.
+2.Schritt zwei - Vorbereitung des Essens: Ich würde das Essen frisch zubereiten und sicherstellen, dass es sauber ist. Wenn nötig, würde ich das Essen in kleinere Stücke schneiden oder auf eine Art zubereiten, die es erleichtert zu essen. Ich würde auch sicherstellen, dass das Essen nicht zu heiß oder zu kalt ist.
+3.Schritt drei - Servieren: Das Essen würde ich auf einem sauberen Teller oder in einer Schüssel servieren. Ich würde sicherstellen, dass die Person bequem sitzt und leicht auf das Essen zugreifen kann.
+4.Schritt vier - Füttern: Wenn nötig, würde ich helfen, das Essen zu füttern. Dabei würde ich kleinere Bissen geben und sicherstellen, dass sie genügend Zeit zum Kauen und Schlucken haben.
+5.Schritt fünf - Nach dem Essen: Nach dem Essen würde ich helfen, den Bereich sauber zu halten und sicherzustellen, dass die Person bequem ist und alle benötigten Getränke oder Nachspeisen hat.
 Jeder Schritt würde mit Rücksichtnahme und Geduld durchgeführt werden, um das bestmögliche Esserlebnis für die Person zu gewährleisten.
 ## Stellen Sie sich vor, Sie müssten einem Patienten beim Waschen helfen, wie würden Sie das machen und worauf würden Sie es machen?
 Beim Helfen eines Patienten beim Waschen sollte sowohl die Würde als auch der Komfort des Patienten gewahrt bleiben. Hier sind die Schritte, die ich folgen würde:
