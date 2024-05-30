@@ -105,6 +105,7 @@ Ich würde gerne im kleinen Team abrbeiten.
 - Erstens ist die Kommunikation zwischen den Teammitgliedern in kleineren Gruppen oft direkter und effizienter, was dazu beiträgt, die Arbeit schneller zu erledigen.
 - In kleineren Teams übernehmen Mitglieder oft mehr Verantwortung und haben die Chance, vielfältigere Aufgaben zu übernehmen. Dies kommt meiner persönlichen Weiterentwicklung und meiner beruflichen Entwicklung zugute.
 ## Arbeiten Sie gerne in Lerngruppen oder arbeiten Sie lieber alleine?
+Ich würde gerne in Lerngruppen arbeiten.
 - Durch Teamarbeit können Mitglieder ihre Ansichten und Ideen teilen und voneinander lernen. In diesem Prozess hat jeder die Möglichkeit, aus den ngen und dem Wissen anderer zu lernen und zu wachsen.  
 - Darüber hinaus kann jedes Mitglied des Teams von seinem eigenen Standpunkt aus Lösungen für Probleme anbieten. Die Vielfalt an Lösungen kann dabei helfen, die beste Strategie zur Problemlösung zu finden.
 ## Stadt/Unternehmen/Kultur/Produkte  
