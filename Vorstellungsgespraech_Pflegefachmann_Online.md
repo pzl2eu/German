@@ -70,7 +70,8 @@ Beim Helfen eines Patienten beim Waschen sollte sowohl die Würde als auch der K
 4) Schritt vier - Abspülen und Trocknen: Danach würde ich sicher gehen, dass keine Seife mehr auf der Haut des Patienten ist und sie anschließend mit einem Handtuch trocken tupfen, nicht reiben.
 5) Letzter Schritt - Komfort: Nach dem Waschen würde ich jede nötige Hilfe beim Anziehen anbieten und dafür sorgen, dass der Patient sich wohl und gepflegt fühlt.
 Jeder Moment dieser Pflege würde mit größter Achtung und Sorgfalt durchgeführt werden.
-## Wie würden Sie mit Konflikten am Arbeitsplatz umgehen? 
+## Wie würden Sie mit Konflikten am Arbeitsplatz umgehen?
+
 ## Arbeitszeiten
 Als Pflegefachmann arbeite ich **38 bis 40 Stunden** pro Woche im **Schichtdienst**, da Patienten **rund um die Uhr** auf Hilfe angewiesen sind, arbeite ich auch **nachts, am Wochenende sowie an Feiertagen**. Als Ausgleich dafür habe ich dann an einem anderen **Wochentag** frei. 
 ## Überstuden
