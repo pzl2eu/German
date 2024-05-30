@@ -32,7 +32,7 @@ Auf diese Weise kann ich beruhigter und gelassener mit der anstehenden Arbeit um
 ## Was machen sie zur Zeit?
 Zur Zeit helfe ich in dem kleinen Restaurant meines Bruders mit einigen einfachen Aufgaben, wie das Überprüfen der Rechnungen, das Reinigen der Tische und des Bodens.
 ## Engagieren Sie sich zurzeit sozial in irgendeiner Weise?
-Kochen, Hausarbeit erledigen, dem Neffen bei den Hausaufgaben helfen.
+Mit Familien Kochen, Hausarbeit erledigen und dem Neffen bei den Hausaufgaben helfen.
 # Motivation
 ## Was sagt ihre Familie dazu, dass sie nach Deutschland gehen?
 Meine Eltern sind dafür, dass ich in Zukunft als Pflegefachmann in Deutschland arbeiten. Sie haben jedoch auch Bedenken um die Sicherheit geäußert, weil sie nur ein bisschen über Deutschland wissen. Dazu habe ich viele Erfahrungsbeiträge von chinesischen Menschen in Deutschland im Internet gelesen, so kann ich ein umfassendes Bild von Deutschland bekommen und dann kann ich mich leichter in die deutsche Gesellschaft integrieren.
@@ -53,10 +53,10 @@ Deutschland ist ein sehr umweltbewusstes Land, ich schätze seine Ruhe, die Natu
 Die Ausbildung zum Pflegefachmann dauert in Vollzeit **drei Jahre**. Sie besteht aus 2 Teilen: 2100 Stunden **Theorie** und 2500 Stunden **Praxis**. Theoriephasen an der Schule wechseln sich mit Praxisphasen in verschiedenen Pflegeeinrichtungen 4 bis 6 Wochen ab. Durch die generalistische Ausrichtung kann man auch alle Pflegebereiche kennenlernen: Altenheim (stationäre Pflege), Krankenhaus (akute Pflege) und Pflegedienst (ambulante Pflege). Nach Abschluss der Ausbildung legt man die staatliche Prüfung zum Pflegefachmann ab.
 ## Tätigkeiten
 Soweit ich weiß, haben Pflegefachkräfte vier Hauptaufgaben.  
-a)Erstens, **Grundpflege**: bei der Körperpflege, Nahrungsaufnahme sowie Einnahme von Medikamenten 
-  
-b)Zweitens, **Fachpflege**: Verbände wechseln, Infusionen sicher verabreichen, Blutdruck messen c)Drittens, durch die Zusammenarbeit mit Ärzten, **kommunizieren** sie mit Patienten und deren   Familien, erfahren mehr über die Gefühle und den Schmerzzustand des Patienten, und erklären ihnen den Behandlungsplan des Arztes sowie die Verwendung von Medikamenten.  
-d)Letzter ist die **Dokumentation** von Pflegemaßnahmen. Dabei muss man Sorgfalt und Verantwortungsbewusstsein zeigen.
+- Erstens, **Grundpflege**: bei der Körperpflege, Nahrungsaufnahme sowie Einnahme von Medikamenten 
+- Zweitens, **Fachpflege**: Verbände wechseln, Infusionen sicher verabreichen, Blutdruck messen 
+- Drittens, durch die Zusammenarbeit mit Ärzten, **kommunizieren** sie mit Patienten und deren   Familien, erfahren mehr über die Gefühle und den Schmerzzustand des Patienten, und erklären ihnen den Behandlungsplan des Arztes sowie die Verwendung von Medikamenten.  
+- Letzter ist die **Dokumentation** von Pflegemaßnahmen. Dabei muss man Sorgfalt und Verantwortungsbewusstsein zeigen.
 ## Stellen Sie sich vor, Sie müssten etwas zu essen geben, wie würden Sie das machen und worauf würden Sie es machen? 
 Wenn ich jemandem Essen geben müsste, würde ich bestimmten Schritten folgen, um sicherzustellen, dass dies sowohl sicher als auch angenehm ist.
 1) Schritt 1 - Kommunikation: Zunächst würde ich herausfinden, welche besonderen Ernährungsbedürfnisse oder Vorlieben sie haben könnten. Das kann Allergien, Diätrestriktionen oder einfach Geschmackspräferenzen beinhalten.
