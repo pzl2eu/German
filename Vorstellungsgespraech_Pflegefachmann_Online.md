@@ -61,27 +61,27 @@ Soweit ich weiß, haben Pflegefachkräfte vier Hauptaufgaben.
 - Letzter ist die **Dokumentation** von Pflegemaßnahmen. Dabei muss man Sorgfalt und Verantwortungsbewusstsein zeigen.
 ## Stellen Sie sich vor, Sie müssten etwas zu essen geben, wie würden Sie das machen und worauf würden Sie es machen? 
 Wenn ich jemandem Essen geben müsste, würde ich bestimmten Schritten folgen, um sicherzustellen, dass dies sowohl sicher als auch angenehm ist.
-1.Schritt 1 - Kommunikation: Zunächst würde ich herausfinden, welche besonderen Ernährungsbedürfnisse oder Vorlieben sie haben könnten. Das kann Allergien, Diätrestriktionen oder einfach Geschmackspräferenzen beinhalten.
-2.Schritt zwei - Vorbereitung des Essens: Ich würde das Essen frisch zubereiten und sicherstellen, dass es sauber ist. Wenn nötig, würde ich das Essen in kleinere Stücke schneiden oder auf eine Art zubereiten, die es erleichtert zu essen. Ich würde auch sicherstellen, dass das Essen nicht zu heiß oder zu kalt ist.
-3.Schritt drei - Servieren: Das Essen würde ich auf einem sauberen Teller oder in einer Schüssel servieren. Ich würde sicherstellen, dass die Person bequem sitzt und leicht auf das Essen zugreifen kann.
-4.Schritt vier - Füttern: Wenn nötig, würde ich helfen, das Essen zu füttern. Dabei würde ich kleinere Bissen geben und sicherstellen, dass sie genügend Zeit zum Kauen und Schlucken haben.
-5.Schritt fünf - Nach dem Essen: Nach dem Essen würde ich helfen, den Bereich sauber zu halten und sicherzustellen, dass die Person bequem ist und alle benötigten Getränke oder Nachspeisen hat.
+1. Kommunikation: Zunächst würde ich herausfinden, welche besonderen Ernährungsbedürfnisse oder Vorlieben sie haben könnten. Das kann Allergien, Diätrestriktionen oder einfach Geschmackspräferenzen beinhalten.
+2. Vorbereitung des Essens: Ich würde das Essen frisch zubereiten und sicherstellen, dass es sauber ist. Wenn nötig, würde ich das Essen in kleinere Stücke schneiden oder auf eine Art zubereiten, die es erleichtert zu essen. Ich würde auch sicherstellen, dass das Essen nicht zu heiß oder zu kalt ist.
+3. Servieren: Das Essen würde ich auf einem sauberen Teller oder in einer Schüssel servieren. Ich würde sicherstellen, dass die Person bequem sitzt und leicht auf das Essen zugreifen kann.
+4. Füttern: Wenn nötig, würde ich helfen, das Essen zu füttern. Dabei würde ich kleinere Bissen geben und sicherstellen, dass sie genügend Zeit zum Kauen und Schlucken haben.
+5. Nach dem Essen: Nach dem Essen würde ich helfen, den Bereich sauber zu halten und sicherzustellen, dass die Person bequem ist und alle benötigten Getränke oder Nachspeisen hat.  
 Jeder Schritt würde mit Rücksichtnahme und Geduld durchgeführt werden, um das bestmögliche Esserlebnis für die Person zu gewährleisten.
 ## Stellen Sie sich vor, Sie müssten einem Patienten beim Waschen helfen, wie würden Sie das machen und worauf würden Sie es machen?
-Beim Helfen eines Patienten beim Waschen sollte sowohl die Würde als auch der Komfort des Patienten gewahrt bleiben. Hier sind die Schritte, die ich folgen würde:
-1.Vorbereitung: Ich würde sicherstellen, dass alles, was ich zum Waschen benötige, in Reichweite ist - inklusive Handtücher, Waschlappen und Seife. Dann würde ich die Privatsphäre des Patients sicherstellen, indem ich die Tür und Vorhänge schließe.
-2.Kommunikation: Ich würde den Patienten über den gesamten Prozess informieren und sicherstellen, dass er damit einverstanden ist.
-3.Waschen: Ich würde mit dem Gesicht anfangen und mich dann zum Rest des Körpers vorarbeiten. Sanft und systematisch, um keinen Bereich zu übersehen. 
-4.Abspülen und Trocknen: Danach würde ich sicher gehen, dass keine Seife mehr auf der Haut des Patienten ist und sie anschließend mit einem Handtuch trocken tupfen, nicht reiben.
-5.Komfort: Nach dem Waschen würde ich jede nötige Hilfe beim Anziehen anbieten und dafür sorgen, dass der Patient sich wohl und gepflegt fühlt.
+Beim Helfen eines Patienten beim Waschen sollte sowohl die Würde als auch der Komfort des Patienten gewahrt bleiben. Hier sind die Schritte, die ich folgen würde:  
+1. Vorbereitung: Ich würde sicherstellen, dass alles, was ich zum Waschen benötige, in Reichweite ist - inklusive Handtücher, Waschlappen und Seife. Dann würde ich die Privatsphäre des Patients sicherstellen, indem ich die Tür und Vorhänge schließe.
+2. Kommunikation: Ich würde den Patienten über den gesamten Prozess informieren und sicherstellen, dass er damit einverstanden ist.
+3. Waschen: Ich würde mit dem Gesicht anfangen und mich dann zum Rest des Körpers vorarbeiten. Sanft und systematisch, um keinen Bereich zu übersehen. 
+4. Abspülen und Trocknen: Danach würde ich sicher gehen, dass keine Seife mehr auf der Haut des Patienten ist und sie anschließend mit einem Handtuch trocken tupfen, nicht reiben.
+5. Komfort: Nach dem Waschen würde ich jede nötige Hilfe beim Anziehen anbieten und dafür sorgen, dass der Patient sich wohl und gepflegt fühlt.
 Jeder Moment dieser Pflege würde mit größter Achtung und Sorgfalt durchgeführt werden.
 ## Wie würden Sie mit Konflikten am Arbeitsplatz umgehen?
 Bei Konflikten am Arbeitsplatz würde ich als Pflegefachmann normalerweise die folgenden Schritte verfolgen:  
-1.Ruhe und Professionalität bewahren: Selbst in Konflikten ist es wichtig, ruhig und professionell zu bleiben. Durch tiefe Atmung und Vermeidung von sofortigen Reaktionen wird stets Priorität auf die Patientenpflege gelegt.  
-2.Kommunikation: Gehen Sie auf den anderen zu und äußern Sie Ihre Meinung und Gefühle. Versuchen Sie, Sätze mit "Ich" anstatt "Du" zu formulieren, um Anschuldigungen zu vermeiden, zum Beispiel "Ich fühle mich verwirrt, wenn..." und nicht "Du bringst mich dazu..."  
-3.Zuhören: Es ist auch wichtig, die Ansichten der anderen zu verstehen. Ihre Ansichten könnten unterschiedlich sein, aber Zuhören hilft, ihre Position besser zu verstehen.  
-4.Lösungsstrategien finden: Finden Sie einen Weg, den Konflikt zu lösen, oder suchen Sie gegebenenfalls Hilfe von Vorgesetzten oder der Personalabteilung.  
-5.Wachsen und Lernen: Lernen und wachsen Sie aus jedem Konflikt. Analysieren Sie die Situation, um die Ursache des Problems zu finden und zukünftige Konflikte zu vermeiden.
+1. Ruhe und Professionalität bewahren: Selbst in Konflikten ist es wichtig, ruhig und professionell zu bleiben. Durch tiefe Atmung und Vermeidung von sofortigen Reaktionen wird stets Priorität auf die Patientenpflege gelegt.  
+2. Kommunikation: Gehen Sie auf den anderen zu und äußern Sie Ihre Meinung und Gefühle. Versuchen Sie, Sätze mit "Ich" anstatt "Du" zu formulieren, um Anschuldigungen zu vermeiden, zum Beispiel "Ich fühle mich verwirrt, wenn..." und nicht "Du bringst mich dazu..."  
+3. Zuhören: Es ist auch wichtig, die Ansichten der anderen zu verstehen. Ihre Ansichten könnten unterschiedlich sein, aber Zuhören hilft, ihre Position besser zu verstehen.  
+4. Lösungsstrategien finden: Finden Sie einen Weg, den Konflikt zu lösen, oder suchen Sie gegebenenfalls Hilfe von Vorgesetzten oder der Personalabteilung.  
+5. Wachsen und Lernen: Lernen und wachsen Sie aus jedem Konflikt. Analysieren Sie die Situation, um die Ursache des Problems zu finden und zukünftige Konflikte zu vermeiden.
 ## Arbeitszeiten
 Als Pflegefachmann arbeite ich **38 bis 40 Stunden** pro Woche im **Schichtdienst**, da Patienten **rund um die Uhr** auf Hilfe angewiesen sind, arbeite ich auch **nachts, am Wochenende sowie an Feiertagen**. Als Ausgleich dafür habe ich dann an einem anderen **Wochentag** frei. 
 ## Überstuden
@@ -102,11 +102,11 @@ Pflege von Kindern und Jugendlichen
 Pflege von Patienten mit psychischen Problemen
 ## Mögen Sie ein großes oder ein kleines Team bei der Arbeit ?
 Ich würde gerne im kleinen Team abrbeiten.
-a)Erstens ist die Kommunikation zwischen den Teammitgliedern in kleineren Gruppen oft direkter und effizienter, was dazu beiträgt, die Arbeit schneller zu erledigen.
-b)In kleineren Teams übernehmen Mitglieder oft mehr Verantwortung und haben die Chance, vielfältigere Aufgaben zu übernehmen. Dies kommt meiner persönlichen Weiterentwicklung und meiner beruflichen Entwicklung zugute.
+- Erstens ist die Kommunikation zwischen den Teammitgliedern in kleineren Gruppen oft direkter und effizienter, was dazu beiträgt, die Arbeit schneller zu erledigen.
+- In kleineren Teams übernehmen Mitglieder oft mehr Verantwortung und haben die Chance, vielfältigere Aufgaben zu übernehmen. Dies kommt meiner persönlichen Weiterentwicklung und meiner beruflichen Entwicklung zugute.
 ## Arbeiten Sie gerne in Lerngruppen oder arbeiten Sie lieber alleine?
-a)Durch Teamarbeit können Mitglieder ihre Ansichten und Ideen teilen und voneinander lernen. In diesem Prozess hat jeder die Möglichkeit, aus den ngen und dem Wissen anderer zu lernen und zu wachsen.  
-b)Darüber hinaus kann jedes Mitglied des Teams von seinem eigenen Standpunkt aus Lösungen für Probleme anbieten. Die Vielfalt an Lösungen kann dabei helfen, die beste Strategie zur Problemlösung zu finden.
+- Durch Teamarbeit können Mitglieder ihre Ansichten und Ideen teilen und voneinander lernen. In diesem Prozess hat jeder die Möglichkeit, aus den ngen und dem Wissen anderer zu lernen und zu wachsen.  
+- Darüber hinaus kann jedes Mitglied des Teams von seinem eigenen Standpunkt aus Lösungen für Probleme anbieten. Die Vielfalt an Lösungen kann dabei helfen, die beste Strategie zur Problemlösung zu finden.
 ## Stadt/Unternehmen/Kultur/Produkte  
 Die Stadt Paderborn ist mit über 156.000 Einwohnern eine Großstadt im östlichen Teil des Landes Nordrhein-Westfalen.
 ## Erfahrungen
@@ -122,8 +122,8 @@ Um Stress abzubauen, nehme ich zunächst drei tiefe Atemzüge, dann setze ich kl
 Ich denke, das Wichtigste im Umgang mit Kollegen ist **Respekt**. Jeder Kollege hat seine eigene einzigartige Arbeitsweise und Kommunikationsstil. Um gemeinsame Arbeitsziele zu erreichen, kann nur durch gegenseitigen Respekt effektiv gearbeitet werden.
 ## Herausforderungen & Gegenmassnahmen
 Aus meiner Sicht gibt es zwei Belastungen, körperliche und seelische Belastungen.  
-a)Körperlich gesehen, besonders am Anfang, ist es nicht einfach, jeden Tag lange Stunden stehend zu verbringen und Nachtschichten zu machen. Ich glaube, dass eine **gesunde Ernährung**, **ausreichender Schlaf** und **häufige kurze Pausen** sehr wichtig sind.
-b)Auf der seelischen Seite, macht es mich sehr traurig, wenn Patienten sterben, da ich eine sehr einfühlsame Person bin.
+- Körperlich gesehen, besonders am Anfang, ist es nicht einfach, jeden Tag lange Stunden stehend zu verbringen und Nachtschichten zu machen. Ich glaube, dass eine **gesunde Ernährung**, **ausreichender Schlaf** und **häufige kurze Pausen** sehr wichtig sind.
+- Auf der seelischen Seite, macht es mich sehr traurig, wenn Patienten sterben, da ich eine sehr einfühlsame Person bin.
 ## Welche persönlichen beruflichen Ziele haben Sie?
 - Als Erstes möchte ich meine Ausbildung erfolgreich abschließen.  
 - Langfristig gesehen hoffe ich, dass ich nach der Ausbildung Deutsch auf dem Niveau C1 erreichen kann und wenn alles gut läuft, würde ich gerne als Pflegefachmann in einer bestimmten Abteilung in dem Unternehmen weiterarbeiten.
