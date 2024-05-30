@@ -19,8 +19,8 @@ b)Ich bin **lernbereit**. Das heisst, ich möchte gerne in meiner Freizeit die D
 c)Manchmal bin ich **selbstkritisch**. Zum Beispiel muss ich jeden Tag bestimmte Ziele beim Deutschlernen erreichen, ansonsten schlafe ich später ein. Jetzt habe ich erkannt, dass Nachhaltigkeit, also meine eigene Gesundheit, für langfristige Ziele besser ist.
 ## Persönlichkeit(Was denken Sie denn, welche Werte und welche Einstellungen sollte ein Mensch haben, wenn er in der Pflege arbeiten möchte?)
 **Einfühlungsvermögen** und **Kontaktfähigkeit** (z.B. im Umgang mit Patienten und Angehörigen)
-Respektieren und hören Sie auf die Bedürfnisse und Gefühle der Patienten und ihrer Familien, und versuchen Sie, ihre Situation und Emotionen zu verstehen. Kommunizieren Sie mit ihnen in klarer Sprache, bieten Sie emotionale und materielle Unterstützung an und helfen Sie ihnen, die Herausforderungen im Krankheits- und Behandlungsprozess zu bewältigen.
-**Psychische Stabilität** (z.B. im Umgang mit schwer kranken oder sterbenden Patienten)
+Respektieren und hören Sie auf die Bedürfnisse und Gefühle der Patienten und ihrer Familien, und versuchen Sie, ihre Situation und Emotionen zu verstehen. Kommunizieren Sie mit ihnen in klarer Sprache, bieten Sie emotionale und materielle Unterstützung an und helfen Sie ihnen, die Herausforderungen im Krankheits- und Behandlungsprozess zu bewältigen.  
+**Psychische Stabilität** (z.B. im Umgang mit schwer kranken oder sterbenden Patienten)  
 a)Wenn ich mit dem Tod von Patienten konfrontiert bin, erlaube ich mir, Trauer zu empfinden, denn das ist eine normale und gesunde emotionale Reaktion.  
 b)Ich erinnere mich daran, dass ich zu der Zeit, als der Patient mich am meisten brauchte, alles getan habe, was ich konnte.  
 c)Gleichzeitig verstehe ich, dass Trauer Zeit braucht, um sich abzuschwächen und akzeptiert zu werden.  
