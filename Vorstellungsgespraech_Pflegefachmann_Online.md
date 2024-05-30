@@ -130,9 +130,10 @@ Aus meiner Sicht gibt es zwei Belastungen, körperliche und seelische Belastunge
 - Langfristig gesehen hoffe ich, dass ich nach der Ausbildung Deutsch auf dem Niveau C1 erreichen kann und wenn alles gut läuft, würde ich gerne als Pflegefachmann in einer bestimmten Abteilung in dem Unternehmen weiterarbeiten.
 # Erfolge
 ## Selbstständig Deutsch lernen
-Als Lerner des VHS-Lernportals, einer kostenlosen Plattform aus Deutschland, möchte ich mich für die Entwicklung bedanken. Das Portal bietet nicht nur Alltagsdeutsch bis zum Niveau B1, sondern auch einen beruflichen B2-Deutschkurs.  
-Außerdem gibt es ein Online-Seminar aus Österreich zum selbstständigen Deutschlernen. Dort habe ich neben den Lerninhalten auch die Möglichkeit, mit anderen zu sprechen.   
-Wenn ich ein spezifisches Problem habe, wende ich mich an meine Lernpartner und den Chatbot. Wenn wir es nicht lösen können, frage ich auf der Discord-Community GLAD auf Englisch nach. Dort sind ungefähr zehntausend aktive Mitglieder online. Auf diese Weise erhalte ich zeitnah viele Rückmeldungen aus der ganzen Welt. Nachdem ich die B1-Prüfung bestanden habe, biete ich auch anderen Mitgliedern Hilfe an. Das finde ich großartig!
+Als Lerner des VHS-Lernportals aus Deutschland, möchte ich mich für die Entwicklung bedanken. Das Portal bietet nicht nur Alltagsdeutsch bis zum Niveau B1, sondern auch einen beruflichen B2-Deutschkurs.  
+Außerdem gibt es ein Online-Seminar aus Österreich. Dort habe ich neben den Lerninhalten bis zum Niveau B2 auch die Möglichkeit, mit anderen zu sprechen.   
+Wenn ich ein spezifisches Problem habe, wende ich mich an meine Lernpartner und den Chatbot.  
+Wenn wir es nicht lösen können, frage ich auf der Discord-Community GLAD auf Englisch nach. Dort sind ungefähr zehntausend aktive Mitglieder online. Auf diese Weise erhalte ich zeitnah viele Rückmeldungen aus der ganzen Welt. Nachdem ich die B1-Prüfung bestanden habe, biete ich auch anderen Mitgliedern Hilfe an. Das finde ich großartig!
 # Die häufigsten Fragen während eines Vorstellungsgesprächs
 ## Können Sie etwas über sich selbst erzählen?
 Diese Frage bietet dem Arbeitgeber die Möglichkeit, einen ersten Eindruck vom Bewerber zu gewinnen und mehr über seine Hintergrundinformationen, Fähigkeiten und Persönlichkeit zu erfahren. Es ermöglicht dem Bewerber auch, sich kurz vorzustellen und die wichtigsten Punkte seines beruflichen Werdegangs hervorzuheben.
