@@ -10,7 +10,7 @@ a)Bisher habe ich als Technik-Künstler und als Geschäftsmitarbeiter gearbeitet
 b)Dann wurde die Frau meines Freundes schwanger, und da im Laden Personal fehlte, habe ich ausgeholfen, um etwas Geld zu verdienen. Von dieser Zeit an begann ich, die Voraussetzungen als Pflegefachmann in China zu recherchieren. Dabei habe ich festgestellt, dass die meisten Pflegeeinrichtungen mindestens einen Bachelor-Abschluss verlangen, weil da es jedes Jahr immer viele Absolventen und nicht mehr neue Arbeitsplätze gibt.  
 c)Eines Tages schickte mir ein anderer Freund, der sich in Deutschland auf ein Masterstudium an der Uni Bielefeld vorbereitet, eine kurze Nachricht. Er erwähnte dabei, dass es in Deutschland viele Ausbildungsplätze für Pflegefachkräfte gibt und die Aussichten sehr gut sind. Aus diesem Grund habe ich mich entschlossen, in meiner Freizeit Deutsch zu lernen, um meine Chancen zu erhöhen, in Zukunft als Pflegefachkraft in Deutschland zu arbeiten.
 ## Sprachen
-Nun habe ich das **Goethe-Zertifikat** B1 erfolgreich erworben und die Teile Sprechen, Lesen und Schreiben des Niveaus B2 bestanden. Darüber hinaus verfüge ich über **Englischkenntnisse** auf ungefähr B1-Niveau.
+Nun habe ich das **Goethe-Zertifikat** B1 erfolgreich erworben und die Teile Sprechen, Lesen und Schreiben des Niveaus B2 bestanden. Jetzt bemühe ich mich, den Teil Hören zu verbessern, indem ich YouTube-Videos mit 0.75-facher Geschwindigkeit nachspreche und wiederhole. Darüber hinaus verfüge ich über **Englischkenntnisse** auf ungefähr B1-Niveau.
 ## Hobbys 
 Mein Hobby ist es, mit Freunden Melodien zu summen und die Natur zu genießen. Dadurch könnten wir Stress abbauen und unsere Akkus aufladen.
 ## Stärken & Schwächen
