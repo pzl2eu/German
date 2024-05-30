@@ -20,7 +20,7 @@ Mein Hobby ist es, mit Freunden Melodien zu summen und die Natur zu genießen. D
 Im Alltag habe ich immer eine positive Einstellung zur Erfahrung verschiedener Kulturen. Ich genieße es, mich mit Menschen aus verschiedenen Hintergründen und Bereichen auszutauschen, deren unterschiedliche Denkweisen und Perspektiven mir stets neue Anregungen und Freude bereiten.   
 - **lernbereit**  
 Das heisst, trotz meiner intensiven Arbeit nutze ich meine Freizeit, um an Online-Kursen teilzunehmen und meine beruflichen Fähigkeiten zu verbessern.
-- **Manchmal sehr selbstkritisch**
+- **Manchmal sehr selbstkritisch**  
 Zum Beispiel muss ich jeden Tag bestimmte Ziele beim Deutschlernen erreichen, ansonsten schlafe ich später ein. Jetzt habe ich erkannt, dass Nachhaltigkeit, also meine eigene Gesundheit, für langfristige Ziele besser ist.
 ## Persönlichkeit(Was denken Sie denn, welche Werte und welche Einstellungen sollte ein Mensch haben, wenn er in der Pflege arbeiten möchte?)
 - **Einfühlungsvermögen** und **Kontaktfähigkeit** (z.B. im Umgang mit Patienten und Angehörigen)
