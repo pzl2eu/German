@@ -109,7 +109,9 @@ Ich würde gerne in Lerngruppen arbeiten.
 - Durch Teamarbeit können Mitglieder ihre Ansichten und Ideen teilen und voneinander lernen. In diesem Prozess hat jeder die Möglichkeit, aus den ngen und dem Wissen anderer zu lernen und zu wachsen.  
 - Darüber hinaus kann jedes Mitglied des Teams von seinem eigenen Standpunkt aus Lösungen für Probleme anbieten. Die Vielfalt an Lösungen kann dabei helfen, die beste Strategie zur Problemlösung zu finden.
 ## Stadt/Unternehmen/Kultur/Produkte  
-Die Stadt Paderborn ist mit über 156.000 Einwohnern eine Großstadt im östlichen Teil des Landes Nordrhein-Westfalen.
+Das MZG betreibt rund 850 Betten und versorgt mit über 1100 Beschäftigten stationäre und ambulante Patienten.  
+Das gesamte MZG liegt in Bad Lippspringe (rund 16.000 Einwohner).  
+Die Stadt verfügt über die beiden Prädikate „Heilbad“ und „heilklimatischer Kurort“ gleichermaßen.
 ## Erfahrungen
 Bis jetzt habe ich noch keine Erfahrungen im Pflegebereich gesammelt. Aber ich hatte eine Erfahrung mit meiner Cousine. Sie hatte eine Operation wegen eines Tumors. Während sie sich danach zu Hause erholte, spürte sie einige Nebenwirkungen und fürchtete den Tod. Daher besuchte ich sie jede Woche, um sie zu begleiten, und erklärte ihr, dass die Angst vor dem Tod eine normale Reaktion ist. Ich schlug vor, ihre Gefühle mit Familie und Freunden zu teilen und deren Unterstützung zu suchen, damit sie sich nicht alleine fühlt.
 ## Lernmethode
