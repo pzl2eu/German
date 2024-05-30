@@ -71,7 +71,12 @@ Beim Helfen eines Patienten beim Waschen sollte sowohl die Würde als auch der K
 5) Letzter Schritt - Komfort: Nach dem Waschen würde ich jede nötige Hilfe beim Anziehen anbieten und dafür sorgen, dass der Patient sich wohl und gepflegt fühlt.
 Jeder Moment dieser Pflege würde mit größter Achtung und Sorgfalt durchgeführt werden.
 ## Wie würden Sie mit Konflikten am Arbeitsplatz umgehen?
-
+Bei Konflikten am Arbeitsplatz würde ich als Pflegefachmann normalerweise die folgenden Schritte verfolgen:  
+a)Ruhe und Professionalität bewahren: Selbst in Konflikten ist es wichtig, ruhig und professionell zu bleiben. Durch tiefe Atmung und Vermeidung von sofortigen Reaktionen wird stets Priorität auf die Patientenpflege gelegt.  
+b)Kommunikation: Gehen Sie auf den anderen zu und äußern Sie Ihre Meinung und Gefühle. Versuchen Sie, Sätze mit "Ich" anstatt "Du" zu formulieren, um Anschuldigungen zu vermeiden, zum Beispiel "Ich fühle mich verwirrt, wenn..." und nicht "Du bringst mich dazu..."  
+c)Zuhören: Es ist auch wichtig, die Ansichten der anderen zu verstehen. Ihre Ansichten könnten unterschiedlich sein, aber Zuhören hilft, ihre Position besser zu verstehen.  
+d)Lösungsstrategien finden: Finden Sie einen Weg, den Konflikt zu lösen, oder suchen Sie gegebenenfalls Hilfe von Vorgesetzten oder der Personalabteilung.  
+e)Wachsen und Lernen: Lernen und wachsen Sie aus jedem Konflikt. Analysieren Sie die Situation, um die Ursache des Problems zu finden und zukünftige Konflikte zu vermeiden.
 ## Arbeitszeiten
 Als Pflegefachmann arbeite ich **38 bis 40 Stunden** pro Woche im **Schichtdienst**, da Patienten **rund um die Uhr** auf Hilfe angewiesen sind, arbeite ich auch **nachts, am Wochenende sowie an Feiertagen**. Als Ausgleich dafür habe ich dann an einem anderen **Wochentag** frei. 
 ## Überstuden
