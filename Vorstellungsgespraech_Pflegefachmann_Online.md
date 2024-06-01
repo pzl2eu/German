@@ -17,7 +17,7 @@ Mein Name ist Pengzhao Luo und ich komme aus Baoding, einer Stadt nicht weit von
 Mein Hobby ist es, mit Freunden Melodien zu summen und die Natur zu genießen. Dadurch könnten wir Stress abbauen und unsere Akkus aufladen.
 ## Stärken & Schwächen
 - **aufgeschlossen**  
-Im Alltag habe ich immer eine positive Einstellung zur Erfahrung verschiedener Kulturen. Ich genieße es, mich mit Menschen aus verschiedenen Hintergründen und Bereichen auszutauschen, deren unterschiedliche Denkweisen und Perspektiven mir stets neue Anregungen und Freude bereiten.   
+Im Alltag habe ich immer eine positive Einstellung zu verschiedenen Kulturen. Ich genieße es, mich mit Menschen aus verschiedenen Hintergründen und Bereichen auszutauschen, deren unterschiedliche Denkweisen und Perspektiven mir stets neue Anregungen und Freude bereiten.   
 - **lernbereit**  
 Das heisst, trotz meiner intensiven Arbeit nutze ich meine Freizeit, um an Online-Kursen teilzunehmen und meine beruflichen Fähigkeiten zu verbessern.
 - **Manchmal sehr selbstkritisch**  
