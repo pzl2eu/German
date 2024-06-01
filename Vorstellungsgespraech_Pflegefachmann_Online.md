@@ -73,7 +73,7 @@ Beim Helfen eines Patienten beim Waschen sollte sowohl die Würde als auch der K
 2. Kommunikation: Ich würde den Patienten über den gesamten Prozess informieren und sicherstellen, dass er damit einverstanden ist.
 3. Waschen: Ich würde mit dem Gesicht anfangen und mich dann zum Rest des Körpers vorarbeiten. Sanft und systematisch, um keinen Bereich zu übersehen. 
 4. Abspülen und Trocknen: Danach würde ich sicher gehen, dass keine Seife mehr auf der Haut des Patienten ist und sie anschließend mit einem Handtuch trocken tupfen, nicht reiben.
-5. Komfort: Nach dem Waschen würde ich jede nötige Hilfe beim Anziehen anbieten und dafür sorgen, dass der Patient sich wohl und gepflegt fühlt.
+5. Komfort: Nach dem Waschen würde ich jede nötige Hilfe beim Anziehen anbieten und dafür sorgen, dass der Patient sich wohl und gepflegt fühlt.  
 Jeder Moment dieser Pflege würde mit größter Achtung und Sorgfalt durchgeführt werden.
 ## Wie würden Sie mit Konflikten am Arbeitsplatz umgehen?
 Bei Konflikten am Arbeitsplatz würde ich als Pflegefachmann normalerweise die folgenden Schritte verfolgen:  
