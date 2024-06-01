@@ -106,7 +106,7 @@ Ich würde gerne im kleinen Team abrbeiten.
 - In kleineren Teams übernehmen Mitglieder oft mehr Verantwortung und haben die Chance, vielfältigere Aufgaben zu übernehmen. Dies kommt meiner beruflichen Entwicklung zugute.
 ## Arbeiten Sie gerne in Lerngruppen oder arbeiten Sie lieber alleine?
 Ich würde gerne in Lerngruppen arbeiten.
-- Durch Teamarbeit können Mitglieder ihre Ansichten und Ideen teilen und voneinander lernen. In diesem Prozess hat jeder die Möglichkeit, aus den Erfahrungen und dem Wissen anderer zu lernen und zu wachsen.  
+- Durch Teamarbeit können Mitglieder ihre Ansichten und Ideen teilen und voneinander lernen und wachsen.  
 - Darüber hinaus kann jedes Mitglied von seinem eigenen Standpunkt aus Problemlösungen anbieten. Die Vielfalt an Lösungen kann dabei helfen, die beste Strategie zur Problemlösung zu finden.
 ## Stadt/Unternehmen/Kultur/Produkte  
 Das MZG betreibt rund 850 Betten und versorgt mit über 1100 Beschäftigten stationäre und ambulante Patienten.  
