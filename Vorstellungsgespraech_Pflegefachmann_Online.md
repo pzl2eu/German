@@ -39,7 +39,7 @@ Mit Familien Kochen, Hausarbeit erledigen und dem Neffen bei den Hausaufgaben he
 ## Was sagt ihre Familie dazu, dass Sie nach Deutschland gehen?
 Meine Eltern sind dafür, dass ich in Zukunft als Pflegefachmann in Deutschland arbeiten. Sie haben jedoch auch Bedenken um die Sicherheit geäußert, weil sie nur ein bisschen über Deutschland wissen. Dazu habe ich viele Erfahrungsbeiträge von Chinesen in Deutschland im Internet gelesen, so kann ich ein umfassendes Bild von Deutschland bekommen und dann kann ich mich auch leichter in die deutsche Gesellschaft integrieren.
 ## Qualität
-Die Pflegeausbildung in **Deutschland** gehört zur Weltspitze. Dadurch kann man nicht nur **Berufsng sammeln**, sondern auch einige **Vergütungen erhalten**, um den eigenen Alltag zu finanzieren.
+Die Pflegeausbildung in **Deutschland** gehört zur Weltspitze. Dadurch kann man nicht nur **Berufserfahrungen sammeln**, sondern auch einige **Vergütungen erhalten**, um den eigenen Alltag zu finanzieren.
 ## Sinn
 Basierend auf dem christlichen Menschenbild kümmern sich Pflegefachkräfte um die Gesundheit der Patienten, indem sie kranke Menschen pflegen und alte Menschen auf dem letzten Stück ihres Lebens begleiten. Das finde ich sehr sinnvoll.
 ## Work-Life-Balance
