@@ -9,9 +9,9 @@ Mein Name ist Pengzhao Luo und ich komme aus Baoding, einer Stadt nicht weit von
 ## Berufserfahrungen  
 - Bisher habe ich als Technik-Künstler und als Geschäftsmitarbeiter gearbeitet. Ich habe jedoch festgestellt, dass dieser Job nicht zu meiner Persönlichkeit passt. Obwohl er viel Geld einbringen könnte, möchte ich lieber eine körperliche Stelle suchen, bei der ich mit anderen kommunizieren kann, anstatt lange Stunden im Büro vor dem Computer zu sitzen. Also habe ich beschlossen, mich beruflich neu zu orientieren.  
 - Dann wurde die Frau meines Freundes schwanger, und da im Laden Personal fehlte, habe ich ausgeholfen, um etwas Geld zu verdienen. Von dieser Zeit an begann ich, die Voraussetzungen als Pflegefachmann in China zu recherchieren. Dabei habe ich festgestellt, dass die meisten Pflegeeinrichtungen mindestens einen Bachelor-Abschluss verlangen, weil da es jedes Jahr immer viele Absolventen und nicht mehr neue Arbeitsplätze gibt.  
-- Eines Tages schickte mir ein anderer Freund, der sich in Deutschland auf ein Masterstudium an der Uni Bielefeld vorbereitet, eine kurze Nachricht. Er erwähnte dabei, dass es in Deutschland viele Ausbildungsplätze für Pflegefachkräfte gibt und die Aussichten sehr gut sind. Aus diesem Grund habe ich mich entschlossen, in meiner Freizeit Deutsch zu lernen, um meine Chancen zu erhöhen, in Zukunft als Pflegefachkraft in Deutschland zu arbeiten.
+- Eines Tages schickte mir ein anderer Freund in Deutschland eine kurze Nachricht. Er erwähnte dabei, dass es in Deutschland viele Ausbildungsplätze für Pflegefachkräfte gibt und die Aussichten sehr gut sind. Aus diesem Grund habe ich mich entschlossen, in meiner Freizeit Deutsch zu lernen, um meine Chancen zu erhöhen, in Zukunft als Pflegefachkraft in Deutschland zu arbeiten.
 ## Sprachen
-- Nun habe ich das **Goethe-Zertifikat** B1 erfolgreich erworben und die Teile Sprechen, Lesen und Schreiben des Niveaus B2 bestanden. Jetzt bemühe ich mich, den Teil Hören zu verbessern, indem ich YouTube-Videos mit 0.75-facher Geschwindigkeit nachspreche und wiederhole.
+- Nun habe ich das **Goethe-Zertifikat** B1 erfolgreich erworben und die Teile Sprechen, Lesen und Schreiben des Niveaus B2 bestanden. Jetzt bemühe ich mich, den Teil Hören zu verbessern, indem ich YouTube-Videos nachspreche und wiederhole.
 - Darüber hinaus verfüge ich über **Englischkenntnisse** auf ungefähr B1-Niveau.
 ## Hobbys 
 Mein Hobby ist es, mit Freunden Melodien zu summen und die Natur zu genießen. Dadurch könnten wir Stress abbauen und unsere Akkus aufladen.
@@ -55,9 +55,9 @@ Deutschland ist ein sehr umweltbewusstes Land, ich schätze seine Ruhe, die Natu
 Die Ausbildung zum Pflegefachmann dauert in Vollzeit **drei Jahre**. Sie besteht aus 2 Teilen: 2100 Stunden **Theorie** und 2500 Stunden **Praxis**. Theoriephasen an der Schule wechseln sich mit Praxisphasen in verschiedenen Pflegeeinrichtungen 4 bis 6 Wochen ab. Durch die generalistische Ausrichtung kann man auch alle Pflegebereiche kennenlernen: Altenheim (stationäre Pflege), Krankenhaus (akute Pflege) und Pflegedienst (ambulante Pflege). Nach Abschluss der Ausbildung legt man die staatliche Prüfung zum Pflegefachmann ab.
 ## Tätigkeiten
 Soweit ich weiß, haben Pflegefachkräfte vier Hauptaufgaben.  
-- Erstens, **Grundpflege**: bei der Körperpflege, Nahrungsaufnahme sowie Einnahme von Medikamenten 
-- Zweitens, **Fachpflege**: Verbände wechseln, Infusionen sicher verabreichen, Blutdruck messen 
-- Drittens, durch die Zusammenarbeit mit Ärzten, **kommunizieren** sie mit Patienten und deren   Familien, erfahren mehr über die Gefühle und den Schmerzzustand des Patienten, und erklären ihnen den Behandlungsplan des Arztes sowie die Verwendung von Medikamenten.  
+- **Grundpflege**: bei der Körperpflege, Nahrungsaufnahme sowie Einnahme von Medikamenten 
+- **Fachpflege**: Verbände wechseln, Infusionen sicher verabreichen, Blutdruck messen 
+- Durch die Zusammenarbeit mit Ärzten, **kommunizieren** sie mit Patienten und deren   Familien, erfahren mehr über die Gefühle und den Schmerzzustand des Patienten, und erklären ihnen den Behandlungsplan des Arztes sowie die Verwendung von Medikamenten.  
 - Letzter ist die **Dokumentation** von Pflegemaßnahmen. Dabei muss man Sorgfalt und Verantwortungsbewusstsein zeigen.
 ## Stellen Sie sich vor, Sie müssten etwas zu essen geben, wie würden Sie das machen und worauf würden Sie es machen? 
 Wenn ich jemandem Essen geben müsste, würde ich bestimmten Schritten folgen, um sicherzustellen, dass dies sowohl sicher als auch angenehm ist.
@@ -65,7 +65,7 @@ Wenn ich jemandem Essen geben müsste, würde ich bestimmten Schritten folgen, u
 2. Vorbereitung des Essens: Ich würde das Essen frisch zubereiten und sicherstellen, dass es sauber ist. Wenn nötig, würde ich das Essen in kleinere Stücke schneiden oder auf eine Art zubereiten, die es erleichtert zu essen. Ich würde auch sicherstellen, dass das Essen nicht zu heiß oder zu kalt ist.
 3. Servieren: Das Essen würde ich auf einem sauberen Teller oder in einer Schüssel servieren. Ich würde sicherstellen, dass die Person bequem sitzt und leicht auf das Essen zugreifen kann.
 4. Füttern: Wenn nötig, würde ich helfen, das Essen zu füttern. Dabei würde ich kleinere Bissen geben und sicherstellen, dass sie genügend Zeit zum Kauen und Schlucken haben.
-5. Nach dem Essen: Nach dem Essen würde ich helfen, den Bereich sauber zu halten und sicherzustellen, dass die Person bequem ist und alle benötigten Getränke oder Nachspeisen hat.  
+5. Nach dem Essen: Nach dem Essen würde ich helfen, den Bereich sauber zu halten und sicherzustellen, dass der Patient bequem ist und alle benötigten Getränke oder Nachspeisen hat.  
 Jeder Schritt würde mit Rücksichtnahme und Geduld durchgeführt werden, um das bestmögliche Esserlebnis für die Person zu gewährleisten.
 ## Stellen Sie sich vor, Sie müssten einem Patienten beim Waschen helfen, wie würden Sie das machen und worauf würden Sie es machen?
 Beim Helfen eines Patienten beim Waschen sollte sowohl die Würde als auch der Komfort des Patienten gewahrt bleiben. Hier sind die Schritte, die ich folgen würde:  
@@ -78,10 +78,10 @@ Jeder Moment dieser Pflege würde mit größter Achtung und Sorgfalt durchgefüh
 ## Wie würden Sie mit Konflikten am Arbeitsplatz umgehen?
 Bei Konflikten am Arbeitsplatz würde ich als Pflegefachmann normalerweise die folgenden Schritte verfolgen:  
 1. Ruhe und Professionalität bewahren: Selbst in Konflikten ist es wichtig, ruhig und professionell zu bleiben. Durch tiefe Atmung und Vermeidung von sofortigen Reaktionen wird stets Priorität auf die Patientenpflege gelegt.  
-2. Kommunikation: Gehen Sie auf den anderen zu und äußern Sie Ihre Meinung und Gefühle. Versuchen Sie, Sätze mit "Ich" anstatt "Du" zu formulieren, um Anschuldigungen zu vermeiden, zum Beispiel "Ich fühle mich verwirrt, wenn..." und nicht "Du bringst mich dazu..."  
+2. Kommunikation: Geh auf den anderen zu und äußern Sie Ihre Meinung und Gefühle. Versuch, Sätze mit "Ich" anstatt "Du" zu formulieren, um Anschuldigungen zu vermeiden, zum Beispiel "Ich fühle mich verwirrt, wenn..." und nicht "Du bringst mich dazu..."  
 3. Zuhören: Es ist auch wichtig, die Ansichten der anderen zu verstehen. Ihre Ansichten könnten unterschiedlich sein, aber Zuhören hilft, ihre Position besser zu verstehen.  
-4. Lösungsstrategien finden: Finden Sie einen Weg, den Konflikt zu lösen, oder suchen Sie gegebenenfalls Hilfe von Vorgesetzten oder der Personalabteilung.  
-5. Wachsen und Lernen: Lernen und wachsen Sie aus jedem Konflikt. Analysieren Sie die Situation, um die Ursache des Problems zu finden und zukünftige Konflikte zu vermeiden.
+4. Lösungsstrategien finden: Finde einen Weg, den Konflikt zu lösen, oder suchen Sie gegebenenfalls Hilfe von Vorgesetzten oder der Personalabteilung.  
+5. Wachsen und Lernen: Lerne und wachse aus jedem Konflikt. Analysiere die Situation, um die Ursache des Problems zu finden und zukünftige Konflikte zu vermeiden.
 ## Arbeitszeiten
 Als Pflegefachmann arbeite ich **38 bis 40 Stunden** pro Woche im **Schichtdienst**, da Patienten **rund um die Uhr** auf Hilfe angewiesen sind, arbeite ich auch **nachts, am Wochenende sowie an Feiertagen**. Als Ausgleich dafür habe ich dann an einem anderen **Wochentag** frei. 
 ## Überstuden
@@ -103,39 +103,39 @@ Pflege von Patienten mit psychischen Problemen
 ## Mögen Sie ein großes oder ein kleines Team bei der Arbeit ?
 Ich würde gerne im kleinen Team abrbeiten.
 - Erstens ist die Kommunikation zwischen den Teammitgliedern in kleineren Gruppen oft direkter und effizienter, was dazu beiträgt, die Arbeit schneller zu erledigen.
-- In kleineren Teams übernehmen Mitglieder oft mehr Verantwortung und haben die Chance, vielfältigere Aufgaben zu übernehmen. Dies kommt meiner persönlichen Weiterentwicklung und meiner beruflichen Entwicklung zugute.
+- In kleineren Teams übernehmen Mitglieder oft mehr Verantwortung und haben die Chance, vielfältigere Aufgaben zu übernehmen. Dies kommt meiner beruflichen Entwicklung zugute.
 ## Arbeiten Sie gerne in Lerngruppen oder arbeiten Sie lieber alleine?
 Ich würde gerne in Lerngruppen arbeiten.
-- Durch Teamarbeit können Mitglieder ihre Ansichten und Ideen teilen und voneinander lernen. In diesem Prozess hat jeder die Möglichkeit, aus den ngen und dem Wissen anderer zu lernen und zu wachsen.  
-- Darüber hinaus kann jedes Mitglied des Teams von seinem eigenen Standpunkt aus Lösungen für Probleme anbieten. Die Vielfalt an Lösungen kann dabei helfen, die beste Strategie zur Problemlösung zu finden.
+- Durch Teamarbeit können Mitglieder ihre Ansichten und Ideen teilen und voneinander lernen. In diesem Prozess hat jeder die Möglichkeit, aus den Erfahrungen und dem Wissen anderer zu lernen und zu wachsen.  
+- Darüber hinaus kann jedes Mitglied von seinem eigenen Standpunkt aus Lösungen für Probleme anbieten. Die Vielfalt an Lösungen kann dabei helfen, die beste Strategie zur Problemlösung zu finden.
 ## Stadt/Unternehmen/Kultur/Produkte  
 Das MZG betreibt rund 850 Betten und versorgt mit über 1100 Beschäftigten stationäre und ambulante Patienten.  
 Das gesamte MZG liegt in Bad Lippspringe (rund 16.000 Einwohner).  
 Die Stadt verfügt über die beiden Prädikate „Heilbad“ und „heilklimatischer Kurort“ gleichermaßen.
 ## Erfahrungen
-Bis jetzt habe ich noch keine Erfahrungen im Pflegebereich gesammelt. Aber ich hatte eine Erfahrung mit meiner Cousine. Sie hatte eine Operation wegen eines Tumors. Während sie sich danach zu Hause erholte, spürte sie einige Nebenwirkungen und fürchtete den Tod. Daher besuchte ich sie jede Woche, um sie zu begleiten, und erklärte ihr, dass die Angst vor dem Tod eine normale Reaktion ist. Ich schlug vor, ihre Gefühle mit Familie und Freunden zu teilen und deren Unterstützung zu suchen, damit sie sich nicht alleine fühlt.
+Bis jetzt habe ich noch keine Erfahrungen im Pflegebereich gesammelt. Aber ich hatte eine Erfahrung mit meiner Cousine. Sie hatte eine Operation wegen eines Tumors. Während sie sich danach zu Hause erholte, spürte sie einige Nebenwirkungen und fürchtete den Tod. Daher besuchte ich sie jede Woche, um sie zu begleiten, und erklärte ihr, dass die Angst vor dem Tod eine normale Reaktion ist. Ich schlug vor, ihre Gefühle mit Familien und Freunden zu teilen und deren Unterstützung zu suchen, damit sie sich nicht alleine fühlt.
 ## Lernmethode
-Meine Lernmethode basiert auf Projekten. Das heißt, anfangs tendiere ich eher dazu, das **Ganze** zu verstehen, anstatt mich auf ein bestimmtes Detail zu beschränken. Dann werde ich mich auf **Details** konzentrieren und **wiederholen**, um das Gelernte zu **vertiefen**.
+Meine Lernmethode basiert auf Projekten. Das heißt, anfangs tendiere ich eher dazu, das **Ganze** zu verstehen, anstatt mich auf ein bestimmtes Detail zu beschränken. Dann werde ich mich auf **Details** konzentrieren und gegebenenfalls **wiederholen**, um das Gelernte zu **vertiefen**.
 ## Abteilung  
 Ich habe keine tiefe Kenntnisse über die verschiedenen Abteilungen in deutschen Krankenhäusern. 
-**Anfangs** werde ich **flexibel** in der angegebenen Abteilung gemäß den Bedürfnissen des Krankenhauses arbeiten, **später** könnte ich dazu **neigen**, in einer bestimmten Abteilung zu arbeiten. Unabhängig von der Abteilung werde ich immer verantwortungsvoll arbeiten und hochwertige Pflegedienstleistungen anbieten.
+**Anfangs** werde ich **flexibel** in der angegebenen Abteilung gemäß den Bedürfnissen des Krankenhauses arbeiten, **später** könnte ich dazu **neigen**, mich in einer bestimmten Abteilung zu einsetzen. Unabhängig von der Abteilung werde ich immer verantwortungsvoll arbeiten und hochwertige Pflegedienstleistungen anbieten.
 ## Umgang mit Stress 
 Um Stress abzubauen, nehme ich zunächst drei tiefe Atemzüge, dann setze ich klare Prioritäten und zerlege große Ziele in kleinere Schritte. Dadurch kann ich den Kopf ausschalten und den Aufgaben neu orientieren. Wenn ich ein Problem nicht selbst lösen kann, suche ich Hilfe bei erfahrenen Kollegen und Vorgesetzten.
 ## Umgang mit Kollegen
 Ich denke, das Wichtigste im Umgang mit Kollegen ist **Respekt**. Jeder Kollege hat seine eigene einzigartige Arbeitsweise und Kommunikationsstil. Um gemeinsame Arbeitsziele zu erreichen, kann nur durch gegenseitigen Respekt effektiv gearbeitet werden.
 ## Herausforderungen & Gegenmassnahmen
 Aus meiner Sicht gibt es zwei Belastungen, körperliche und seelische Belastungen.  
-- Körperlich gesehen, besonders am Anfang, ist es nicht einfach, jeden Tag lange Stunden stehend zu verbringen und Nachtschichten zu machen. Ich glaube, dass eine **gesunde Ernährung**, **ausreichender Schlaf** und **häufige kurze Pausen** sehr wichtig sind.
+- Körperlich gesehen, besonders am Anfang, ist es nicht einfach, jeden Tag lange Stunden stehend zu verbringen und Nachtschichten zu machen. Ich glaube, dass eine **gesunde Ernährung**, **ausreichender Schlaf** und **häufige kurze Pausen** dazu sehr wichtig sind.
 - Auf der seelischen Seite, macht es mich sehr traurig, wenn Patienten sterben, da ich eine sehr einfühlsame Person bin.
 ## Welche persönlichen beruflichen Ziele haben Sie?
 - Als Erstes möchte ich meine Ausbildung erfolgreich abschließen.  
 - Langfristig gesehen hoffe ich, dass ich nach der Ausbildung Deutsch auf dem Niveau C1 erreichen kann und wenn alles gut läuft, würde ich gerne als Pflegefachmann in einer bestimmten Abteilung in dem Unternehmen weiterarbeiten.
 # Erfolge
 ## Selbstständig Deutsch lernen
-Als Lerner des VHS-Lernportals aus Deutschland, möchte ich mich für die Entwicklung bedanken. Das Portal bietet nicht nur Alltagsdeutsch bis zum Niveau B1, sondern auch einen beruflichen B2-Deutschkurs.  
-Außerdem gibt es ein Online-Seminar aus Österreich. Dort habe ich neben den Lerninhalten bis zum Niveau B2 auch die Möglichkeit, mit anderen zu sprechen.   
-Wenn ich ein spezifisches Problem habe, wende ich mich an meine Lernpartner und den Chatbot.  
-Wenn wir es nicht lösen können, frage ich auf der Discord-Community GLAD auf Englisch nach. Dort sind ungefähr zehntausend aktive Mitglieder online. Auf diese Weise erhalte ich zeitnah viele Rückmeldungen aus der ganzen Welt. Nachdem ich die B1-Prüfung bestanden habe, biete ich auch anderen Mitgliedern Hilfe an. Das finde ich großartig!
+Als Lerner des **VHS-Lernportals aus Deutschland**, möchte ich mich für die Entwicklung bedanken. Das Portal bietet nicht nur Alltagsdeutsch bis zum Niveau B1, sondern auch einen beruflichen B2-Deutschkurs.  
+Außerdem gibt es ein **Online-Seminar aus Österreich**. Dort habe ich neben den Lerninhalten auch die Möglichkeit, mit anderen zu sprechen.   
+Wenn ich ein spezifisches Problem habe, wende ich mich an meine **Lernpartner** und den **Chatbot**.  
+Wenn wir es nicht lösen können, frage ich auf der **Discord-Community** auf Englisch nach. Dort sind ungefähr zehntausend aktive Mitglieder online. Auf diese Weise erhalte ich zeitnah viele Rückmeldungen aus der ganzen Welt. Nachdem ich die B1-Prüfung bestanden habe, biete ich auch anderen Mitgliedern Hilfe an. Das finde ich großartig!
 # Die häufigsten Fragen während eines Vorstellungsgesprächs
 ## Können Sie etwas über sich selbst erzählen?
 Diese Frage bietet dem Arbeitgeber die Möglichkeit, einen ersten Eindruck vom Bewerber zu gewinnen und mehr über seine Hintergrundinformationen, Fähigkeiten und Persönlichkeit zu erfahren. Es ermöglicht dem Bewerber auch, sich kurz vorzustellen und die wichtigsten Punkte seines beruflichen Werdegangs hervorzuheben.
