@@ -34,7 +34,7 @@ Auf diese Weise kann ich beruhigter und gelassener mit der anstehenden Arbeit um
 ## Was machen sie zur Zeit?
 Zur Zeit helfe ich in dem kleinen Restaurant meines Bruders mit einigen einfachen Aufgaben, wie das Überprüfen der Rechnungen, das Reinigen der Tische und des Bodens.
 ## Engagieren Sie sich zurzeit sozial in irgendeiner Weise?
-Mit Familien Kochen, Hausarbeit erledigen und dem Neffen bei den Hausaufgaben helfen.
+Mit Familien Kochen, Hausarbeit erledigen und dem Neffen bei Hausaufgaben helfen.
 # Motivation
 ## Was sagt ihre Familie dazu, dass Sie nach Deutschland gehen?
 Meine Eltern sind dafür, dass ich in Zukunft als Pflegefachmann in Deutschland arbeiten. Sie haben jedoch auch Bedenken um die Sicherheit geäußert, weil sie nur ein bisschen über Deutschland wissen. Dazu habe ich viele Erfahrungsbeiträge von Chinesen in Deutschland im Internet gelesen, so kann ich ein umfassendes Bild von Deutschland bekommen und dann kann ich mich auch leichter in die deutsche Gesellschaft integrieren.
