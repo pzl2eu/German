@@ -115,7 +115,7 @@ Die Stadt verfügt über die beiden Prädikate „Heilbad“ und „heilklimatis
 ## Erfahrungen
 Bis jetzt habe ich noch keine Erfahrungen im Pflegebereich gesammelt. Aber ich hatte eine Erfahrung mit meiner Cousine. Sie hatte eine Operation wegen eines Tumors. Während sie sich danach zu Hause erholte, spürte sie einige Nebenwirkungen und fürchtete den Tod. Daher besuchte ich sie jede Woche, um sie zu begleiten, und erklärte ihr, dass die Angst vor dem Tod eine normale Reaktion ist. Ich schlug vor, ihre Gefühle mit Familien und Freunden zu teilen und deren Unterstützung zu suchen, damit sie sich nicht alleine fühlt.
 ## Lernmethode
-Meine Lernmethode basiert auf Projekten. Das heißt, anfangs tendiere ich eher dazu, das **Ganze** zu verstehen, anstatt mich auf ein bestimmtes Detail zu beschränken. Dann werde ich mich auf **Details** konzentrieren und gegebenenfalls **wiederholen**, um das Gelernte zu **vertiefen**.
+Meiner Meinung nach ist es für mich sehr effektiv, dass ich durch die Arbeit oder den Kurs Notizen mache und Feedback einhole, um dann in meiner Freizeit das Gelernte zu vertiefen, indem ich die Notizen wiederhole.
 ## Abteilung  
 Ich habe keine tiefe Kenntnisse über die verschiedenen Abteilungen in deutschen Krankenhäusern. 
 **Anfangs** werde ich **flexibel** in der angegebenen Abteilung gemäß den Bedürfnissen des Krankenhauses arbeiten, **später** könnte ich dazu **neigen**, mich in einer bestimmten Abteilung zu einsetzen. Unabhängig von der Abteilung werde ich immer verantwortungsvoll arbeiten und hochwertige Pflegedienstleistungen anbieten.
