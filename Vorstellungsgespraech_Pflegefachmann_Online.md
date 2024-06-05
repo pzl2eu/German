@@ -91,11 +91,11 @@ Für mich als Pflegefachmann ist eine gute Schicht eine, in der ich effektiv und
 ## Lerninhalt
 Grundlagen zum Ausbildungsstart  
 Unterstützung der Patienten bei Bewegung und Selbstversorgung  
-Reflexion der Pflegng  
+**Reflexion der Pflege**  
 Gesundheitsförderung und -prävention  
 Kurative Prozesse und Patientensicherheit  
 Handeln in Akutsituationen  
-Rehabilitation  
+**Rehabilitation**  
 Begleitung von Patienten in der letzten Lebensphase  
 Unterstützung der Patienten bei der Lebensgestaltung  
 Pflege von Kindern und Jugendlichen  
