@@ -108,9 +108,7 @@ Ich würde gerne im kleinen Team abrbeiten.
 Ich würde gerne **in Lerngruppen** arbeiten.  
 Dadurch kann jedes Mitglied **von** seinem eigenen Standpunkt **aus** Problemlösungen anbieten. Die Vielfalt an Lösungen kann dabei helfen, die beste Strategie zur Problemlösung zu finden.
 ## Stadt/Unternehmen/Kultur/Produkte  
-Das MZG betreibt rund 850 Betten und versorgt mit über 1100 Beschäftigten stationäre und ambulante Patienten.  
-Das gesamte MZG liegt in Bad Lippspringe (rund 16.000 Einwohner).  
-Die Stadt verfügt über die beiden Prädikate „Heilbad“ und „heilklimatischer Kurort“ gleichermaßen.
+Ich habe auf der Internetseite erfahren, dass das MZG in Bad Lippspringe liegt (rund 16.000 Einwohner) und rund 850 Betten hat und mit über 1100 Beschäftigten stationäre und ambulante Patienten versorgt.  
 ## Erfahrungen
 Bis jetzt habe ich noch keine Erfahrungen im Pflegebereich gesammelt. Aber ich hatte eine Erfahrung mit meiner Cousine. Sie hatte eine Operation wegen eines Tumors. Während sie sich danach zu Hause erholte, spürte sie einige Nebenwirkungen und fürchtete den Tod. Daher besuchte ich sie jede Woche, um sie zu begleiten, und erklärte ihr, dass die Angst vor dem Tod eine normale Reaktion ist. Ich schlug vor, ihre Gefühle mit Familien und Freunden zu teilen und deren Unterstützung zu suchen, damit sie sich nicht alleine fühlt.
 ## Lernmethode
