@@ -105,9 +105,8 @@ Ich würde gerne im kleinen Team abrbeiten.
 - Erstens ist die Kommunikation zwischen den Teammitgliedern in kleineren Gruppen oft direkter und effizienter, was dazu beiträgt, die Arbeit schneller zu erledigen.
 - In kleineren Teams übernehmen Mitglieder oft mehr Verantwortung und haben die Chance, vielfältigere Aufgaben zu übernehmen. Dies kommt meiner beruflichen Entwicklung zugute.
 ## Arbeiten Sie gerne in Lerngruppen oder arbeiten Sie lieber alleine?
-Ich würde gerne in Lerngruppen arbeiten.
-- Durch Teamarbeit können Mitglieder ihre Ansichten und Ideen teilen und voneinander lernen und wachsen.  
-- Darüber hinaus kann jedes Mitglied von seinem eigenen Standpunkt aus Problemlösungen anbieten. Die Vielfalt an Lösungen kann dabei helfen, die beste Strategie zur Problemlösung zu finden.
+Ich würde gerne **in Lerngruppen** arbeiten.  
+Dadurch kann jedes Mitglied **von** seinem eigenen Standpunkt **aus** Problemlösungen anbieten. Die Vielfalt an Lösungen kann dabei helfen, die beste Strategie zur Problemlösung zu finden.
 ## Stadt/Unternehmen/Kultur/Produkte  
 Das MZG betreibt rund 850 Betten und versorgt mit über 1100 Beschäftigten stationäre und ambulante Patienten.  
 Das gesamte MZG liegt in Bad Lippspringe (rund 16.000 Einwohner).  
