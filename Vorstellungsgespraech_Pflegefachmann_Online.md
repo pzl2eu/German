@@ -46,7 +46,7 @@ Die Ausbildung zum Pflegefachmann dauert in Vollzeit **drei Jahre**. Sie besteht
 Soweit ich weiß, haben Pflegefachkräfte vier Hauptaufgaben.  
 - **Grundpflege**: bei der Körperpflege, Nahrungsaufnahme sowie Einnahme von Medikamenten 
 - **Fachpflege**: Verbände wechseln, Infusionen sicher verabreichen, Blutdruck messen 
-- Durch die Zusammenarbeit mit Ärzten, **kommuniziere** ich mit Patienten und deren Familien, erfahre mehr über die Gefühle und den Schmerzzustand des Patienten, und erkläre ihnen den Behandlungsplan des Arztes sowie die Verwendung von Medikamenten.  
+- Durch die Zusammenarbeit mit Ärzten **kommuniziere** ich mit den Patienten und ihren Familien in klarer Sprache, biete emotionale und materielle Unterstützung an und helfe ihnen, die Herausforderungen im Krankheits- und Behandlungsprozess zu bewältigen.
 - Letzter ist die **Dokumentation** von Pflegemaßnahmen. Dabei muss man Sorgfalt und Verantwortungsbewusstsein zeigen.
 ## Stellen Sie sich vor, Sie müssten etwas zu essen geben, wie würden Sie das machen und worauf würden Sie es machen? 
 Wenn ich jemandem Essen geben müsste, würde ich bestimmten Schritten folgen, um sicherzustellen, dass dies sowohl sicher als auch angenehm ist.
