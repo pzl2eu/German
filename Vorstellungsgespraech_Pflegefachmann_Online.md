@@ -49,8 +49,7 @@ Soweit ich weiß, haben Pflegefachkräfte vier Hauptaufgaben.
 - Durch die Zusammenarbeit mit Ärzten **kommuniziere** ich mit den Patienten und ihren Familien in klarer Sprache, biete emotionale und materielle Unterstützung an und helfe ihnen, die Herausforderungen im Krankheits- und Behandlungsprozess zu bewältigen.
 - Letzter ist die **Dokumentation** von Pflegemaßnahmen. Dabei muss man Sorgfalt und Verantwortungsbewusstsein zeigen.
 ## Stellen Sie sich vor, Sie müssten etwas zu essen geben, wie würden Sie das machen und worauf würden Sie es machen? 
-Wenn ich jemandem Essen geben müsste, würde ich bestimmten Schritten folgen, um sicherzustellen, dass dies sowohl sicher als auch angenehm ist.
-1. Kommunikation: Zunächst würde ich herausfinden, welche besonderen Ernährungsbedürfnisse oder Vorlieben er haben könnte. Das kann Allergien, Diätrestriktionen oder einfach Geschmackspräferenzen beinhalten.
+1. Kommunikation: Zunächst würde ich herausfinden, welche besonderen Ernährungsbedürfnisse er haben könnte. Das kann Allergien, Diätrestriktionen oder einfach Geschmackspräferenzen beinhalten.
 2. Vorbereitung des Essens: Dann würde ich das Essen frisch und sauber zubereiten und sicherstellen, dass das Essen nicht zu heiß oder zu kalt ist. Wenn nötig, würde ich das Essen in kleinere Stücke schneiden.
 3. Servieren: Danach würde ich das Essen auf einem sauberen Teller servieren. Ich würde sicherstellen, dass er bequem sitzt und leicht auf das Essen zugreifen kann.
 4. Füttern: Wenn nötig, würde ich helfen, das Essen zu füttern. Dabei würde ich kleinere Bissen geben und sicherstellen, dass er genügend Zeit zum Kauen und Schlucken hat.
