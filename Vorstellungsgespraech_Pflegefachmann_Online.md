@@ -25,7 +25,8 @@ Zum Beispiel muss ich jeden Tag bestimmte Ziele beim Deutschlernen erreichen, an
 ## Persönlichkeit
 INTP
 ## Was machen sie zur Zeit?
-Zur Zeit helfe ich in dem kleinen Restaurant meines Bruders mit einigen einfachen Aufgaben, wie das Überprüfen der Rechnungen, das Reinigen der Tische und des Bodens.
+Nach der Kündigung habe ich seit Ende letzten Jahres in Vollzeit Deutsch mit meinem Lernpartner gelernt. Momentan genieße ich die Zeit mit meiner Familie. Während dieser Zeit half ich meiner Familie viel, da ich bisher keine Gelegenheit hatte, längere Zeit zu Hause zu bleiben. Ich unterrichte meine Schwester, wie man Google Übersetzer benutzt, um im Wattierung-Kleidungsgeschäft mit Ausländern zu verhandeln, und ich bringe meinem Neffen bei, wie er ChatGPT zur Unterstützung beim Englischlernen verwenden kann.  
+Zur Zeit helfe ich in dem kleinen Restaurant meines Bruders mit einigen einfachen Aufgaben, wie das Überprüfen der Rechnungen, das Reinigen der Tische und des Bodens. In meiner Freizeit lerne ich Beruf Deutsch.
 ## Engagieren Sie sich zurzeit sozial in irgendeiner Weise?
 Mit Familien Kochen, Hausarbeit erledigen und dem Neffen bei Hausaufgaben helfen.
 # Motivation
