@@ -22,15 +22,8 @@ Im Alltag habe ich immer eine positive Einstellung zu verschiedenen Kulturen. Ic
 Das heisst, trotz meiner intensiven Arbeit nutze ich meine Freizeit, um Online-Kursen teilzunehmen und meine beruflichen Fähigkeiten zu verbessern.
 - **Manchmal sehr selbstkritisch**  
 Zum Beispiel muss ich jeden Tag bestimmte Ziele beim Deutschlernen erreichen, ansonsten schlafe ich später ein. Jetzt habe ich erkannt, dass Nachhaltigkeit, also meine eigene Gesundheit, für langfristige Ziele besser ist.
-## Persönlichkeit(Was denken Sie denn, welche Werte und welche Einstellungen sollte ein Mensch haben, wenn er in der Pflege arbeiten möchte?)
-- **Einfühlungsvermögen** und **Kontaktfähigkeit** (z.B. im Umgang mit Patienten und Angehörigen)  
-Respektieren und hören Sie auf die Bedürfnisse der Patienten und ihrer Familien, und versuchen Sie, ihre Situation und Gefühle zu verstehen. Kommunizieren Sie mit ihnen in klarer Sprache, bieten Sie emotionale und materielle Unterstützung an und helfen Sie ihnen, die Herausforderungen im Krankheits- und Behandlungsprozess zu bewältigen.  
-- **Psychische Stabilität** (z.B. im Umgang mit schwer kranken oder sterbenden Patienten)  
-a)Wenn ich mit dem Tod von Patienten konfrontiert bin, erlaube ich mir, Trauer zu empfinden, denn das ist eine normale und gesunde emotionale Reaktion.  
-b)Ich erinnere mich daran, dass ich zu der Zeit, als der Patient mich am meisten brauchte, alles getan habe, was ich konnte.  
-c)Gleichzeitig verstehe ich, dass Trauer Zeit braucht, um sich abzuschwächen und akzeptiert zu werden.  
-d)Um mir zu helfen, besser damit umzugehen, leite ich mich durch Meditation dazu an, meine Aufmerksamkeit von der anhaltenden Trauer auf die Dinge zu lenken, die mich in diesem Moment entspannen.  
-Auf diese Weise kann ich beruhigter und gelassener mit der anstehenden Arbeit umgehen.
+## Persönlichkeit
+INTP
 ## Was machen sie zur Zeit?
 Zur Zeit helfe ich in dem kleinen Restaurant meines Bruders mit einigen einfachen Aufgaben, wie das Überprüfen der Rechnungen, das Reinigen der Tische und des Bodens.
 ## Engagieren Sie sich zurzeit sozial in irgendeiner Weise?
@@ -123,6 +116,15 @@ Aus meiner Sicht gibt es zwei Belastungen, körperliche und seelische Belastunge
 ## Welche persönlichen beruflichen Ziele haben Sie?
 - Als Erstes möchte ich meine Ausbildung erfolgreich abschließen.  
 - Langfristig gesehen hoffe ich, dass ich nach der Ausbildung Deutsch auf dem Niveau C1 erreichen kann und wenn alles gut läuft, würde ich gerne als Pflegefachmann in einer bestimmten Abteilung in dem Unternehmen weiterarbeiten.
+## Was denken Sie denn, welche Werte und welche Einstellungen sollte ein Mensch haben, wenn er in der Pflege arbeiten möchte?
+- **Einfühlungsvermögen** und **Kontaktfähigkeit** (z.B. im Umgang mit Patienten und Angehörigen)  
+Respektieren und hören Sie auf die Bedürfnisse der Patienten und ihrer Familien, und versuchen Sie, ihre Situation und Gefühle zu verstehen. Kommunizieren Sie mit ihnen in klarer Sprache, bieten Sie emotionale und materielle Unterstützung an und helfen Sie ihnen, die Herausforderungen im Krankheits- und Behandlungsprozess zu bewältigen.  
+- **Psychische Stabilität** (z.B. im Umgang mit schwer kranken oder sterbenden Patienten)  
+a)Wenn ich mit dem Tod von Patienten konfrontiert bin, erlaube ich mir, Trauer zu empfinden, denn das ist eine normale und gesunde emotionale Reaktion.  
+b)Ich erinnere mich daran, dass ich zu der Zeit, als der Patient mich am meisten brauchte, alles getan habe, was ich konnte.  
+c)Gleichzeitig verstehe ich, dass Trauer Zeit braucht, um sich abzuschwächen und akzeptiert zu werden.  
+d)Um mir zu helfen, besser damit umzugehen, leite ich mich durch Meditation dazu an, meine Aufmerksamkeit von der anhaltenden Trauer auf die Dinge zu lenken, die mich in diesem Moment entspannen.  
+Auf diese Weise kann ich beruhigter und gelassener mit der anstehenden Arbeit umgehen.
 # Erfolge
 ## Selbstständig Deutsch lernen
 Als Lerner des **VHS-Lernportals aus Deutschland**, möchte ich mich für die Entwicklung bedanken. Das Portal bietet nicht nur Alltagsdeutsch bis zum Niveau B1, sondern auch einen beruflichen B2-Deutschkurs.  
