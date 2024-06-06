@@ -24,7 +24,7 @@ Das heisst, trotz meiner intensiven Arbeit nutze ich meine Freizeit, um Online-K
 Zum Beispiel muss ich jeden Tag bestimmte Ziele beim Deutschlernen erreichen, ansonsten schlafe ich später ein. Jetzt habe ich erkannt, dass Nachhaltigkeit, also meine eigene Gesundheit, für langfristige Ziele besser ist.
 ## Persönlichkeit
 INTP
-## Was machen sie zur Zeit?
+## Was machen Sie nach der Kündigung und zur Zeit?
 Nach der Kündigung habe ich seit Ende letzten Jahres in Vollzeit Deutsch mit meinem Lernpartner gelernt. Momentan genieße ich die Zeit mit meiner Familie. Während dieser Zeit half ich meiner Familie viel, da ich bisher keine Gelegenheit hatte, längere Zeit zu Hause zu bleiben. Ich unterrichte meine Schwester, wie man Google Übersetzer benutzt, um im Wattierung-Kleidungsgeschäft mit Ausländern zu verhandeln, und ich bringe meinem Neffen bei, wie er ChatGPT zur Unterstützung beim Englischlernen verwenden kann.  
 Zur Zeit helfe ich in dem kleinen Restaurant meines Bruders mit einigen einfachen Aufgaben, wie das Überprüfen der Rechnungen, das Reinigen der Tische und des Bodens. In meiner Freizeit lerne ich Beruf Deutsch.
 ## Engagieren Sie sich zurzeit sozial in irgendeiner Weise?
