@@ -29,16 +29,15 @@ Zur Zeit helfe ich in dem kleinen Restaurant meines Bruders mit einigen einfache
 ## Engagieren Sie sich zurzeit sozial in irgendeiner Weise?
 Mit Familien Kochen, Hausarbeit erledigen und dem Neffen bei Hausaufgaben helfen.
 # Motivation
-## Was sagt ihre Familie dazu, dass Sie nach Deutschland gehen?
-Meine Familie sind dafür, dass ich in Zukunft als Pflegefachmann in Deutschland arbeiten. Sie haben jedoch auch Bedenken um die Sicherheit geäußert, weil sie nur ein bisschen über Deutschland wissen. Dazu habe ich viele Erfahrungsbeiträge von Chinesen in Deutschland im Internet gelesen, so kann ich ein umfassendes Bild von Deutschland bekommen und dann kann ich mich auch leichter in die deutsche Gesellschaft integrieren.
 ## Qualität
 Die Pflegeausbildung in **Deutschland** gehört zur Weltspitze. Dadurch kann man nicht nur **Berufserfahrungen sammeln**, sondern auch einige **Vergütungen erhalten**, um den eigenen Alltag zu finanzieren.
+## Sozialversicherung
+Wie allgemein bekannt ist, ist das **Sozialversicherungssystem** in Deutschland sehr attraktiv für diejenigen, die stabil in Deutschland arbeiten und leben möchten.
+## Was sagt ihre Familie dazu, dass Sie nach Deutschland gehen?
+Meine Familie sind dafür, dass ich in Zukunft als Pflegefachmann in Deutschland arbeiten. Sie haben jedoch auch Bedenken um die Sicherheit geäußert, weil sie nur ein bisschen über Deutschland wissen. Dazu habe ich viele Erfahrungsbeiträge von Chinesen in Deutschland im Internet gelesen, so kann ich ein umfassendes Bild von Deutschland bekommen und dann kann ich mich auch leichter in die deutsche Gesellschaft integrieren.
 ## Sinn
 Basierend auf dem **christlichen Menschenbild** kümmern sich Pflegefachkräfte um die Gesundheit der Patienten, indem sie kranke Menschen pflegen und alte Menschen auf dem letzten Stück ihres Lebens begleiten. Das finde ich sehr sinnvoll.
 ## Work-Life-Balance
-
-## Sozialversicherung
-Wie allgemein bekannt ist, ist das **Sozialversicherungssystem** in Deutschland sehr attraktiv für diejenigen, die stabil in Deutschland arbeiten und leben möchten.
 # Beruf/Arbeit
 ## Übersicht
 Die Ausbildung zum Pflegefachmann dauert in Vollzeit **drei Jahre**. Sie besteht aus 2 Teilen: 2100 Stunden **Theorie** und 2500 Stunden **Praxis**. Theoriephasen an der Schule wechseln sich mit Praxisphasen in verschiedenen Pflegeeinrichtungen 4 bis 6 Wochen ab. Durch die generalistische Ausrichtung kann man auch alle Pflegebereiche kennenlernen: Altenheim (stationäre Pflege), Krankenhaus (akute Pflege) und Pflegedienst (ambulante Pflege). Nach Abschluss der Ausbildung legt man die staatliche Prüfung zum Pflegefachmann ab.
