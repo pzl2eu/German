@@ -30,7 +30,7 @@ Zur Zeit helfe ich in dem kleinen Restaurant meines Bruders mit einigen einfache
 Mit Familien Kochen, Hausarbeit erledigen und dem Neffen bei Hausaufgaben helfen.
 # Motivation
 ## Was sagt ihre Familie dazu, dass Sie nach Deutschland gehen?
-Meine Eltern sind dafür, dass ich in Zukunft als Pflegefachmann in Deutschland arbeiten. Sie haben jedoch auch Bedenken um die Sicherheit geäußert, weil sie nur ein bisschen über Deutschland wissen. Dazu habe ich viele Erfahrungsbeiträge von Chinesen in Deutschland im Internet gelesen, so kann ich ein umfassendes Bild von Deutschland bekommen und dann kann ich mich auch leichter in die deutsche Gesellschaft integrieren.
+Meine Familie sind dafür, dass ich in Zukunft als Pflegefachmann in Deutschland arbeiten. Sie haben jedoch auch Bedenken um die Sicherheit geäußert, weil sie nur ein bisschen über Deutschland wissen. Dazu habe ich viele Erfahrungsbeiträge von Chinesen in Deutschland im Internet gelesen, so kann ich ein umfassendes Bild von Deutschland bekommen und dann kann ich mich auch leichter in die deutsche Gesellschaft integrieren.
 ## Qualität
 Die Pflegeausbildung in **Deutschland** gehört zur Weltspitze. Dadurch kann man nicht nur **Berufserfahrungen sammeln**, sondern auch einige **Vergütungen erhalten**, um den eigenen Alltag zu finanzieren.
 ## Sinn
