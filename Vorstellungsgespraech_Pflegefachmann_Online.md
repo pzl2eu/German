@@ -62,11 +62,11 @@ Soweit ich weiß, haben Pflegefachkräfte vier Hauptaufgaben.
 5. **Komfort**: Nach dem Waschen würde ich jede nötige Hilfe beim Anziehen anbieten und dafür sorgen, dass der Patient sich wohl und gepflegt fühlt.  
 ## Wie würden Sie mit Konflikten am Arbeitsplatz umgehen?
 Bei Konflikten am Arbeitsplatz würde ich als Pflegefachmann normalerweise die folgenden Schritte verfolgen:  
-1. Ruhe und Professionalität bewahren: Selbst in Konflikten ist es wichtig, ruhig und professionell zu bleiben. Durch tiefe Atmung und Vermeidung von sofortigen Reaktionen wird stets Priorität auf die Patientenpflege gelegt.  
-2. Kommunikation: Ich würde auf den anderen zugehen und meine Meinung und Gefühle äußern. Also, Sätze mit "Ich" anstatt "Du" zu formulieren, um Anschuldigungen zu vermeiden, zum Beispiel "Ich fühle mich verwirrt, wenn..." aber nicht "Du bringst mich dazu..."  
-3. Zuhören: Ich würde die Ansichten der anderen zuhören. Ihre Ansichten könnten unterschiedlich sein, aber Zuhören hilft, ihre Position besser zu verstehen.  
-4. Lösungsstrategien finden: Dann würde ich einen Weg finden, den Konflikt zu lösen, oder gegebenenfalls Hilfe von Vorgesetzten oder der Personalabteilung suchen.
-5. Wachsen und Lernen: Als Letzter würde ich aus jedem Konflikt lernen und wachsen. Das heißt, ich würde analysiere die Situation, um die Ursache des Problems zu finden und zukünftige Konflikte zu vermeiden.
+1. Ruhe und Professionalität bewahren: Selbst in Konflikten ist es wichtig, **ruhig** und **professionell** zu bleiben. Durch tiefe Atmung und Vermeidung von sofortigen Reaktionen wird stets Priorität auf die Patientenpflege gelegt.  
+2. Kommunikation: Ich würde auf den anderen **zugehen** und meine Meinung und Gefühle **äußern**. Also, Sätze mit "Ich" anstatt "Du" zu formulieren, um **Anschuldigungen** zu vermeiden, zum Beispiel "Ich fühle mich verwirrt, wenn..." aber nicht "Du bringst mich dazu..."  
+3. Zuhören: Ich würde die Ansichten der anderen **zuhören**. Ihre Ansichten könnten unterschiedlich sein, aber Zuhören hilft, ihre Position besser zu verstehen.  
+4. Lösungsstrategien finden: Dann würde ich einen **Weg finden**, den Konflikt zu lösen, oder gegebenenfalls Hilfe von Vorgesetzten oder der Personalabteilung suchen.
+5. Wachsen und Lernen: Als Letzter würde ich aus jedem Konflikt **lernen** und **wachsen**. Das heißt, ich würde analysiere die Situation, um die Ursache des Problems zu finden und zukünftige Konflikte zu vermeiden.
 ## Arbeitszeiten
 Als Pflegefachmann arbeite ich **38 bis 40 Stunden** pro Woche im **Schichtdienst**, da Patienten **rund um die Uhr** auf Hilfe angewiesen sind, arbeite ich auch **nachts, am Wochenende sowie an Feiertagen**. Als Ausgleich dafür habe ich dann an einem anderen **Wochentag** frei. 
 ## Überstuden
