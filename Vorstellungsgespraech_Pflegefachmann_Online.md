@@ -85,19 +85,17 @@ Begleitung von Patienten in der letzten Lebensphase
 Unterstützung der Patienten bei der Lebensgestaltung  
 Pflege von Kindern und Jugendlichen  
 Pflege von Patienten mit psychischen Problemen
-## Mögen Sie ein großes oder ein kleines Team bei der Arbeit ?
-Ich würde gerne im kleinen Team abrbeiten.
-- Erstens ist die Kommunikation zwischen den Teammitgliedern in kleineren Gruppen oft direkter und effizienter, was dazu beiträgt, die Arbeit schneller zu erledigen.
-- In kleineren Teams übernehmen Mitglieder oft mehr Verantwortung und haben die Chance, vielfältigere Aufgaben zu übernehmen. Dies kommt meiner beruflichen Entwicklung zugute.
-## Arbeiten Sie gerne in Lerngruppen oder arbeiten Sie lieber alleine?
-Ich würde gerne **in Lerngruppen** arbeiten.  
-Dadurch kann jedes Mitglied **von** seinem eigenen Standpunkt **aus** Problemlösungen anbieten. Die Vielfalt an Lösungen kann dabei helfen, die beste Strategie zur Problemlösung zu finden.
 ## Stadt/Unternehmen/Kultur/Produkte  
 Ich habe auf der Internetseite erfahren, dass das MZG in Bad Lippspringe liegt und rund 850 Betten hat und mit über 1100 Beschäftigten stationäre und ambulante Patienten versorgt.  
 ## Erfahrungen
 Bis jetzt habe ich noch keine Erfahrungen im Pflegebereich gesammelt. Aber ich hatte eine Erfahrung mit meiner Cousine. Sie hatte eine Operation wegen eines Tumors. Während sie sich danach zu Hause erholte, spürte sie einige Nebenwirkungen und fürchtete den Tod. Daher besuchte ich sie jede Woche, um sie zu begleiten, und erklärte ihr, dass die Angst vor dem Tod eine normale Reaktion ist. Ich schlug vor, ihre Gefühle mit Familien und Freunden zu teilen und deren Unterstützung zu suchen, damit sie sich nicht alleine fühlt.
 ## Lernmethode
 Meiner Meinung nach ist es für mich sehr effektiv, dass ich durch die Arbeit oder den Kurs Notizen mache und Feedback einhole, um dann in meiner Freizeit das Gelernte zu vertiefen, indem ich die Notizen wiederhole.
+Ich würde gerne **in Lerngruppen** arbeiten.  
+Dadurch kann jedes Mitglied **von** seinem eigenen Standpunkt **aus** Problemlösungen anbieten. Die Vielfalt an Lösungen kann dabei helfen, die beste Strategie zur Problemlösung zu finden.  
+Ich würde gerne im kleinen Team abrbeiten.
+- Erstens ist die Kommunikation zwischen den Teammitgliedern in kleineren Gruppen oft direkter und effizienter, was dazu beiträgt, die Arbeit schneller zu erledigen.
+- In kleineren Teams übernehmen Mitglieder oft mehr Verantwortung und haben die Chance, vielfältigere Aufgaben zu übernehmen. Dies kommt meiner beruflichen Entwicklung zugute.
 ## Abteilung  
 Ich habe keine tiefe Kenntnisse über die verschiedenen Abteilungen in deutschen Krankenhäusern. 
 **Anfangs** werde ich **flexibel** in der angegebenen Abteilung gemäß den Bedürfnissen des Krankenhauses arbeiten, **später** könnte ich dazu **neigen**, mich in einer bestimmten Abteilung zu einsetzen. Unabhängig von der Abteilung werde ich immer verantwortungsvoll arbeiten und hochwertige Pflegedienstleistungen anbieten.
