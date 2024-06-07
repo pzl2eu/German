@@ -72,7 +72,7 @@ Als Pflegefachmann arbeite ich **38 bis 40 Stunden** pro Woche im **Schichtdiens
 ## Überstuden
 Wenn meine persönliche Situation es erlaubt und die Arbeit es erfordert, bin ich bereit, in Maßen Überstunden zu machen.
 ## Was ist für Sie eine gute Schicht?
-Für mich als Pflegefachmann ist eine gute Schicht eine, in der ich effektiv und effizient arbeiten kann, um die bestmögliche Pflege für meine Patienten zu gewährleisten. Dies beinhaltet eine geruhsame Umgebung, eine gute Kommunikation im Team, genügend Zeit für jeden Patienten und die Möglichkeit, alle geplanten Aufgaben ohne unnötige Unterbrechungen zu erledigen. Es ist auch wichtig, dass ich am Ende der Schicht das Gefühl habe, dass ich einen positiven Einfluss auf das Wohlergehen meiner Patienten hatte.
+Eine geruhsame Umgebung, eine gute Kommunikation im Team, genügend Zeit für jeden Patienten usw. Es ist auch wichtig, dass ich am Ende der Schicht das Gefühl habe, dass ich einen positiven Einfluss auf das Wohlergehen meiner Patienten hatte.
 ## Lerninhalt
 Grundlagen zum Ausbildungsstart  
 Unterstützung der Patienten bei Bewegung und Selbstversorgung  
