@@ -107,20 +107,21 @@ Um Stress abzubauen, nehme ich zunächst drei tiefe Atemzüge, dann setze ich kl
 Ich denke, das Wichtigste im Umgang mit Kollegen ist **Respekt**. Jeder Kollege hat seine eigene einzigartige Arbeitsweise und Kommunikationsstil. Um gemeinsame Arbeitsziele zu erreichen, kann nur durch gegenseitigen Respekt effektiv gearbeitet werden.
 ## Herausforderungen & Gegenmassnahmen
 Aus meiner Sicht gibt es zwei Belastungen, körperliche und seelische Belastungen.  
-- Körperlich gesehen, besonders am Anfang, ist es nicht einfach, jeden Tag lange Stunden stehend zu verbringen und Nachtschichten zu machen. Ich glaube, dass eine **gesunde Ernährung**, **ausreichender Schlaf** und **häufige kurze Pausen** dazu sehr wichtig sind.
-- Auf der seelischen Seite, macht es mich sehr traurig, wenn Patienten sterben, da ich eine sehr einfühlsame Person bin.
+- Körperlich gesehen, besonders am Anfang, ist es nicht einfach, jeden Tag lange Stunden stehend zu verbringen und Nachtschichten zu machen. ->  
+Ich glaube, dass eine **gesunde Ernährung**, **ausreichender Schlaf** und **häufige kurze Pausen** dazu sehr hilfreich sind.
+- Auf der seelischen Seite, macht es mich sehr traurig, wenn Patienten sterben, da ich eine sehr einfühlsame Person bin. ->
+**Psychische Stabilität** (z.B. im Umgang mit schwer kranken oder sterbenden Patienten) 
+a)Wenn ich mit dem Tod von Patienten konfrontiert bin, erlaube ich mir, Trauer zu empfinden, denn das ist eine normale und gesunde emotionale Reaktion.  
+b)Ich erinnere mich daran, dass ich zu der Zeit, als der Patient mich am meisten brauchte, alles getan habe, was ich konnte.  
+c)Gleichzeitig verstehe ich, dass Trauer Zeit braucht, um sich abzuschwächen und akzeptiert zu werden.  
+d)Um mir zu helfen, besser damit umzugehen, leite ich mich durch Meditation dazu an, meine Aufmerksamkeit von der anhaltenden Trauer auf die Dinge zu lenken, die mich in diesem Moment entspannen.  
+Auf diese Weise kann ich beruhigter und gelassener mit der anstehenden Arbeit umgehen.
 ## Welche persönlichen beruflichen Ziele haben Sie?
 - Als Erstes möchte ich meine Ausbildung erfolgreich abschließen.  
 - Langfristig gesehen hoffe ich, dass ich nach der Ausbildung Deutsch auf dem Niveau C1 erreichen kann und wenn alles gut läuft, würde ich gerne als Pflegefachmann in einer bestimmten Abteilung in dem Unternehmen weiterarbeiten.
 ## Was denken Sie denn, welche Werte und welche Einstellungen sollte ein Mensch haben, wenn er in der Pflege arbeiten möchte?
 - **Einfühlungsvermögen** und **Kontaktfähigkeit** (z.B. im Umgang mit Patienten und Angehörigen)  
 Respektieren und hören Sie auf die Bedürfnisse der Patienten und ihrer Familien, und versuchen Sie, ihre Situation und Gefühle zu verstehen. Kommunizieren Sie mit ihnen in klarer Sprache, bieten Sie emotionale und materielle Unterstützung an und helfen Sie ihnen, die Herausforderungen im Krankheits- und Behandlungsprozess zu bewältigen.  
-- **Psychische Stabilität** (z.B. im Umgang mit schwer kranken oder sterbenden Patienten)  
-a)Wenn ich mit dem Tod von Patienten konfrontiert bin, erlaube ich mir, Trauer zu empfinden, denn das ist eine normale und gesunde emotionale Reaktion.  
-b)Ich erinnere mich daran, dass ich zu der Zeit, als der Patient mich am meisten brauchte, alles getan habe, was ich konnte.  
-c)Gleichzeitig verstehe ich, dass Trauer Zeit braucht, um sich abzuschwächen und akzeptiert zu werden.  
-d)Um mir zu helfen, besser damit umzugehen, leite ich mich durch Meditation dazu an, meine Aufmerksamkeit von der anhaltenden Trauer auf die Dinge zu lenken, die mich in diesem Moment entspannen.  
-Auf diese Weise kann ich beruhigter und gelassener mit der anstehenden Arbeit umgehen.
 # Erfolge
 ## Selbstständig Deutsch lernen
 Als Lerner des **VHS-Lernportals aus Deutschland**, möchte ich mich für die Entwicklung bedanken. Das Portal bietet nicht nur Alltagsdeutsch bis zum Niveau B1, sondern auch einen beruflichen B2-Deutschkurs.  
