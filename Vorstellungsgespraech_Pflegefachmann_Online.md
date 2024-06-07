@@ -14,7 +14,7 @@ Mein Name ist Pengzhao Luo und ich komme aus Baoding, einer Stadt nicht weit von
 - Nun habe ich das **Goethe-Zertifikat** B1 erfolgreich erworben und die Teile Sprechen, Lesen und Schreiben des Niveaus B2 bestanden. Jetzt bemühe ich mich, den Teil Hören zu verbessern, indem ich YouTube-Videos nachspreche und wiederhole.
 - Darüber hinaus verfüge ich über **Englischkenntnisse** auf ungefähr B1-Niveau.
 ## Hobbys 
-Mein Hobby ist es, mit Freunden Melodien zu summen und die Natur zu genießen. Dadurch könnten wir Stress abbauen und unsere Akkus aufladen.
+Mit Freunden Melodien summen und in der Natur spazieren gehen. Dadurch könnten wir Stress abbauen und unsere Akkus aufladen.
 ## Stärken & Schwächen
 - **aufgeschlossen**  
 Im Alltag habe ich immer eine positive Einstellung zu verschiedenen Kulturen. Ich genieße es, mich mit Menschen aus verschiedenen Hintergründen und Bereichen auszutauschen, deren unterschiedliche Denkweisen und Perspektiven mir stets neue Anregungen und Freude bereiten.   
