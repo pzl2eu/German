@@ -112,7 +112,7 @@ a)Wenn ich mit dem Tod von Patienten konfrontiert bin, **erlaube** ich mir, Trau
 b)Ich erinnere mich daran, dass ich zu der Zeit, als der Patient mich am meisten brauchte, **alles getan habe**, was ich konnte.  
 c)Gleichzeitig verstehe ich, dass Trauer **Zeit braucht**, um sich abzuschwächen und akzeptiert zu werden.  
 d)Um mir zu helfen, besser damit umzugehen, leite ich mich durch Meditation dazu an, meine **Aufmerksamkeit** von der anhaltenden Trauer auf die Dinge zu **lenken**, die mich in diesem Moment entspannen.  
-Auf diese Weise kann ich beruhigter und gelassener mit der anstehenden Arbeit umgehen.
+Auf diese Weise kann ich **beruhigter** und **gelassener** mit der anstehenden Arbeit umgehen.
 ## Welche persönlichen beruflichen Ziele haben Sie?
 - Als Erstes möchte ich meine Ausbildung erfolgreich abschließen.  
 - Langfristig gesehen hoffe ich, dass ich nach der Ausbildung Deutsch auf dem Niveau C1 erreichen kann und wenn alles gut läuft, würde ich gerne als Pflegefachmann in einer bestimmten Abteilung in dem Unternehmen weiterarbeiten.
