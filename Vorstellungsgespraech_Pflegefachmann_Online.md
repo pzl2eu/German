@@ -86,7 +86,7 @@ Unterstützung der Patienten bei der Lebensgestaltung
 Pflege von Kindern und Jugendlichen  
 Pflege von Patienten mit psychischen Problemen
 ## Stadt/Unternehmen/Kultur/Produkte  
-Ich habe auf der Internetseite erfahren, dass das MZG in Bad Lippspringe liegt und dort gibt es rund 850 Betten über 1100 Beschäftigten.
+Ich habe auf der Internetseite erfahren, dass das MZG in Bad Lippspringe liegt und dass es dort rund 850 Betten und über 1100 Beschäftigte gibt.
 ## Erfahrungen
 Bis jetzt habe ich noch keine Erfahrungen im Pflegebereich gesammelt. Aber ich hatte eine Erfahrung mit meiner Cousine. Sie hatte eine Operation wegen eines Tumors. Während sie sich danach zu Hause erholte, spürte sie einige Nebenwirkungen und fürchtete den Tod. Daher besuchte ich sie jede Woche, um sie zu begleiten, und erklärte ihr, dass die Angst vor dem Tod eine normale Reaktion ist. Ich schlug vor, ihre Gefühle mit Familien und Freunden zu teilen und deren Unterstützung zu suchen, damit sie sich nicht alleine fühlt.
 ## Lernmethode
