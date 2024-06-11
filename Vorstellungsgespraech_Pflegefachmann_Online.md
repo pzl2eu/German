@@ -24,7 +24,7 @@ Das heisst, trotz meiner intensiven Arbeit nutze ich meine Freizeit, um Online-K
 Zum Beispiel muss ich jeden Tag bestimmte Ziele beim Deutschlernen erreichen, ansonsten schlafe ich später ein. Jetzt habe ich erkannt, dass Nachhaltigkeit, also meine eigene Gesundheit, für langfristige Ziele besser ist.
 ## Persönlichkeit
 INTP
-## Was machen Sie nach der Kündigung und zur Zeit?
+## Was machen Sie zur Zeit?
 Nach der Kündigung habe ich seit Ende letzten Jahres in Vollzeit Deutsch mit meinem Lernpartner gelernt. Momentan genieße ich die Zeit mit meiner Familie. Während dieser Zeit half ich meiner Familie viel, da ich bisher keine Gelegenheit hatte, längere Zeit zu Hause zu bleiben. Ich unterrichte meine Schwester, wie man Google Übersetzer benutzt, um im Wattierung-Kleidungsgeschäft mit Ausländern zu verhandeln, und ich bringe meinem Neffen bei, wie er ChatGPT zur Unterstützung beim Englischlernen verwenden kann.  
 Zur Zeit helfe ich in dem kleinen Restaurant meines Bruders mit einigen einfachen Aufgaben, wie das Überprüfen der Rechnungen, das Reinigen der Tische und des Bodens. In meiner Freizeit lerne ich Beruf Deutsch.
 # Motivation
@@ -46,28 +46,21 @@ Soweit ich weiß, haben Pflegefachkräfte vier Hauptaufgaben.
 - **Fachpflege**: Verbände wechseln, Infusionen sicher verabreichen, Blutdruck messen 
 - Durch die Zusammenarbeit mit Ärzten **kommuniziere** ich mit den Patienten und ihren Familien in klarer Sprache, biete emotionale und materielle Unterstützung an und helfe ihnen, die Herausforderungen im Krankheits- und Behandlungsprozess zu bewältigen.
 - Letzter ist die **Dokumentation** von Pflegemaßnahmen. Dabei muss man Sorgfalt und Verantwortungsbewusstsein zeigen.
-## Stellen Sie sich vor, Sie müssten etwas zu essen geben, wie würden Sie das machen und worauf würden Sie es machen? 
+### Nahrungsaufnahme 
 1. **Kommunikation**: Zunächst würde ich herausfinden, welche besonderen Ernährungsbedürfnisse er haben könnte. Das kann Allergien, Diätrestriktionen oder einfach Geschmackspräferenzen beinhalten.
 2. **Vorbereitung**: Dann würde ich das Essen frisch und sauber zubereiten und sicherstellen, dass das Essen nicht zu heiß oder zu kalt ist. Wenn nötig, würde ich das Essen in kleinere Stücke schneiden.
 3. **Servieren**: Danach würde ich das Essen auf einem sauberen Teller servieren. Ich würde sicherstellen, dass er bequem sitzt und leicht auf das Essen zugreifen kann.
 4. **Füttern**: Wenn nötig, würde ich helfen, das Essen zu füttern. Dabei würde ich kleinere Bissen geben und sicherstellen, dass er genügend Zeit zum Kauen und Schlucken hat.
 5. **Nach dem Essen**: Nach dem Essen würde ich helfen, den Bereich sauber zu halten und sicherzustellen, dass er alle benötigten Getränke oder Nachspeisen hat.  
-## Stellen Sie sich vor, Sie müssten einem Patienten beim Waschen helfen, wie würden Sie das machen und worauf würden Sie es machen?
+### Körperpflege
 1. **Vorbereitung**: Ich würde sicherstellen, dass alles, was ich zum Waschen benötige, in Reichweite ist - inklusive Handtücher, Waschlappen und Seife. Dann würde ich die Privatsphäre des Patients sicherstellen, indem ich die Tür und Vorhänge schließe.
 2. **Kommunikation**: Ich würde den Patienten über den gesamten Prozess informieren und sicherstellen, dass er damit einverstanden ist.
 3. **Waschen**: Ich würde mit dem Gesicht anfangen und mich dann zum Rest des Körpers vorarbeiten. Sanft und systematisch, um keinen Bereich zu übersehen. 
 4. **Abspülen und Trocknen**: Danach würde ich sicher gehen, dass keine Seife mehr auf der Haut des Patienten ist und sie anschließend mit einem Handtuch trocken tupfen.
 5. **Komfort**: Nach dem Waschen würde ich jede nötige Hilfe beim Anziehen anbieten und dafür sorgen, dass der Patient sich wohl und gepflegt fühlt.  
-## Wie würden Sie mit Konflikten am Arbeitsplatz umgehen?
-Bei Konflikten am Arbeitsplatz würde ich als Pflegefachmann normalerweise die folgenden Schritte verfolgen:  
-1. Ruhe und Professionalität bewahren: Selbst in Konflikten ist es wichtig, **ruhig** und **professionell** zu bleiben. Durch tiefe Atmung und Vermeidung von sofortigen Reaktionen wird stets Priorität auf die Patientenpflege gelegt.  
-2. Kommunikation: Ich würde auf den anderen **zugehen** und meine Meinung und Gefühle **äußern**. Also, Sätze mit "Ich" anstatt "Du" zu formulieren, um **Anschuldigungen** zu vermeiden, zum Beispiel "Ich fühle mich verwirrt, wenn..." aber nicht "Du bringst mich dazu..."  
-3. Zuhören: Ich würde die Ansichten der anderen **zuhören**. Ihre Ansichten könnten unterschiedlich sein, aber Zuhören hilft, ihre Position besser zu verstehen.  
-4. Lösungsstrategien finden: Dann würde ich einen **Weg finden**, den Konflikt zu lösen, oder gegebenenfalls Hilfe von Vorgesetzten oder der Personalabteilung suchen.
-5. Wachsen und Lernen: Als Letzter würde ich aus jedem Konflikt **lernen** und **wachsen**. Das heißt, ich würde analysiere die Situation, um die Ursache des Problems zu finden und zukünftige Konflikte zu vermeiden.
 ## Arbeitszeiten
 Als Pflegefachmann arbeite ich **38 bis 40 Stunden** pro Woche im **Schichtdienst**, da Patienten **rund um die Uhr** auf Hilfe angewiesen sind, arbeite ich auch **nachts, am Wochenende sowie an Feiertagen**. Als Ausgleich dafür habe ich dann an einem anderen **Wochentag** frei. 
-## Überstuden
+## Überstunden
 Wenn meine persönliche Situation es erlaubt und die Arbeit es erfordert, bin ich bereit, in Maßen Überstunden zu machen.
 ## Was ist für Sie eine gute Schicht?
 Eine geruhsame Umgebung, eine gute Kommunikation im Team, genügend Zeit für jeden Patienten usw. Es ist auch wichtig, dass ich am Ende der Schicht das Gefühl habe, dass ich einen positiven Einfluss auf das Wohlergehen meiner Patienten hatte.
@@ -92,6 +85,12 @@ Meiner Meinung nach ist es für mich sehr effektiv, während der Arbeit oder des
 ## Abteilung  
 Ich habe keine tiefe Kenntnisse über die verschiedenen Abteilungen in deutschen Krankenhäusern. 
 **Anfangs** werde ich **flexibel** in der angegebenen Abteilung gemäß den Bedürfnissen des Krankenhauses arbeiten, **später** könnte ich dazu **neigen**, mich in einer bestimmten Abteilung zu einsetzen. Unabhängig von der Abteilung werde ich immer verantwortungsvoll arbeiten und hochwertige Pflegedienstleistungen anbieten.
+## Umgang mit Konflikten
+1. Selbst in Konflikten ist es wichtig, **ruhig** und **professionell** zu bleiben. Durch tiefe Atmung und Vermeidung von sofortigen Reaktionen wird stets Priorität auf die Patientenpflege gelegt.  
+2. Ich würde auf den anderen **zugehen** und meine Meinung und Gefühle **äußern**. Also, Sätze mit "Ich" anstatt "Du" zu formulieren, um **Anschuldigungen** zu vermeiden, zum Beispiel "Ich fühle mich verwirrt, wenn..." aber nicht "Du bringst mich dazu..."  
+3. Ich würde die Ansichten der anderen **zuhören**. Ihre Ansichten könnten unterschiedlich sein, aber Zuhören hilft, ihre Position besser zu verstehen.  
+4. Dann würde ich einen **Weg finden**, den Konflikt zu lösen, oder gegebenenfalls Hilfe von Vorgesetzten oder der Personalabteilung suchen.
+5. Als Letzter würde ich aus jedem Konflikt **lernen** und **wachsen**. Das heißt, ich würde analysiere die Situation, um die Ursache des Problems zu finden und zukünftige Konflikte zu vermeiden.
 ## Umgang mit Stress 
 Um Stress abzubauen, nehme ich zunächst drei tiefe Atemzüge, dann setze ich klare Prioritäten und zerlege große Ziele in kleinere Schritte. Dadurch kann ich den Kopf ausschalten und den Aufgaben neu orientieren. Wenn ich ein Problem nicht selbst lösen kann, suche ich Hilfe bei erfahrenen Kollegen und Vorgesetzten.
 ## Umgang mit Kollegen
@@ -107,18 +106,19 @@ b)Ich erinnere mich daran, dass ich zu der Zeit, als der Patient mich am meisten
 c)Gleichzeitig verstehe ich, dass Trauer **Zeit braucht**, um sich abzuschwächen und akzeptiert zu werden.  
 d)Um mir zu helfen, besser damit umzugehen, leite ich mich durch Meditation dazu an, meine **Aufmerksamkeit** von der anhaltenden Trauer auf die Dinge zu **lenken**, die mich in diesem Moment entspannen.  
 Auf diese Weise kann ich **beruhigter** und **gelassener** mit der anstehenden Arbeit umgehen.
-## Welche persönlichen beruflichen Ziele haben Sie?
+## Wo sehen Sie sich in fünf Jahren beruflich?
 - Als Erstes möchte ich meine Ausbildung erfolgreich abschließen.  
 - Langfristig gesehen hoffe ich, dass ich nach der Ausbildung Deutsch auf dem Niveau C1 erreichen kann und wenn alles gut läuft, würde ich gerne als Pflegefachmann in einer bestimmten Abteilung in dem Unternehmen weiterarbeiten.
 ## Was denken Sie denn, welche Werte und welche Einstellungen sollte ein Mensch haben, wenn er in der Pflege arbeiten möchte?
 - **Einfühlungsvermögen** und **Kontaktfähigkeit** (z.B. im Umgang mit Patienten und Angehörigen)  
 Respektieren und hören Sie auf die Bedürfnisse der Patienten und ihrer Familien, und versuchen Sie, ihre Situation und Gefühle zu verstehen. Kommunizieren Sie mit ihnen in klarer Sprache, bieten Sie emotionale und materielle Unterstützung an und helfen Sie ihnen, die Herausforderungen im Krankheits- und Behandlungsprozess zu bewältigen.  
 # Erfolge
-## Selbstständig Deutsch lernen
-Als Lerner des **VHS-Lernportals aus Deutschland**, möchte ich mich für die Entwicklung bedanken. Das Portal bietet nicht nur Alltagsdeutsch bis zum Niveau B1, sondern auch einen beruflichen B2-Deutschkurs.  
-Außerdem gibt es ein **Online-Seminar aus Österreich**. Dort habe ich neben den Lerninhalten auch die Möglichkeit, mit anderen zu sprechen.   
-Wenn ich ein spezifisches Problem habe, wende ich mich an meine **Lernpartner** und den **Chatbot**.  
-Wenn wir es nicht lösen können, frage ich auf der **Discord-Community** auf Englisch nach. Dort sind ungefähr zehntausend aktive Mitglieder online. Auf diese Weise erhalte ich zeitnah viele Rückmeldungen aus der ganzen Welt. Nachdem ich die B1-Prüfung bestanden habe, biete ich auch anderen Mitgliedern Hilfe an. Das finde ich großartig!
+## Selbstständig Deutsch lernen(Selbstlernfähigkeit)
+VHS-Lernportals aus Deutschland
+Online-Seminar aus Österreich
+Lernpartner
+Chatbot
+Discord-Community GLaD
 # Die häufigsten Fragen während eines Vorstellungsgesprächs
 ## Können Sie etwas über sich selbst erzählen?
 Diese Frage bietet dem Arbeitgeber die Möglichkeit, einen ersten Eindruck vom Bewerber zu gewinnen und mehr über seine Hintergrundinformationen, Fähigkeiten und Persönlichkeit zu erfahren. Es ermöglicht dem Bewerber auch, sich kurz vorzustellen und die wichtigsten Punkte seines beruflichen Werdegangs hervorzuheben.
