@@ -113,10 +113,10 @@ Respektieren und hören Sie auf die Bedürfnisse der Patienten und ihrer Familie
 Kommunizieren Sie mit ihnen in klarer Sprache, bieten Sie emotionale und materielle Unterstützung an und helfen Sie ihnen, die Herausforderungen im Krankheits- und Behandlungsprozess zu bewältigen.  
 # Erfolge
 ## Selbstständig Deutsch lernen(Selbstlernfähigkeit)
-VHS-Lernportals aus Deutschland
-Online-Seminar aus Österreich
-Lernpartner
-Chatbot
+VHS-Lernportals aus Deutschland  
+Online-Seminar aus Österreich  
+Lernpartner  
+Chatbot  
 Discord-Community GLaD
 # Nachfrage 
 - Wie sieht die Betreuung während der Ausbildung aus? Wer sind die Ansprechpartner bei Fragen oder Problemen?   
