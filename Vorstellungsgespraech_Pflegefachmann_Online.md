@@ -2,41 +2,40 @@
 ## Small Talk  
 Vielen Dank für die Einladung. Ehrlich gesagt bin ich ein bisschen aufgeregt und wie wollen wir dieses Gespräch machen?  
 ## Über mich  
-Mein Name ist Pengzhao Luo und ich komme aus Baoding, einer Stadt nicht weit von Peking entfernt.  
+Mein Name ist [...] und ich komme aus [...], einer Stadt nicht weit von Peking entfernt.  
 ## Höchster Bildungsabschluss  
-- Im Jahr 2022 habe ich meinen Bachelor in **Geoinformatik**, einem ingenieurwissenschaftlichen Fach, an der **Shanghai Ocean University** abgeschlossen.
-- Kurz vor dem Abschluss habe ich erfahren, dass viele Menschen in Shanghai aufgrund von **Corona** ohne ausreichende Pflegeleistungen gelitten haben. In Pflegeeinrichtungen gab es nicht genügend Betten und Pflegefachleute, um Kindern und älteren Menschen mit chronischen Krankheiten Pflegeversorgungen anzubieten. Während dieser Zeit war das Schlimmste für mich, dass ich manchmal Leute mit Schutzkleidung sah, die verstorbene ältere Menschen aus Wohngebieten holten. So habe ich die Bedeutung von Pflege erkannt. 
-## Berufserfahrungen  
-- Bisher habe ich als Technik-Künstler und als Geschäftsmitarbeiter gearbeitet. Ich habe jedoch festgestellt, dass dieser Job nicht zu meiner Persönlichkeit passt. Obwohl er viel Geld einbringen könnte, möchte ich lieber eine körperliche Stelle suchen, bei der ich mit anderen kommunizieren kann, anstatt lange Stunden im Büro vor dem Computer zu sitzen. Also habe ich beschlossen, mich beruflich neu zu orientieren.  
-- Dann wurde die Frau meines Freundes schwanger, und da im Laden Personal fehlte, habe ich ausgeholfen, um etwas Geld zu verdienen. Von dieser Zeit an begann ich, die Voraussetzungen als Pflegefachmann in China zu recherchieren. Dabei habe ich festgestellt, dass die meisten Pflegeeinrichtungen mindestens einen Bachelor-Abschluss verlangen, weil da es jedes Jahr immer viele Absolventen und nicht mehr neue Arbeitsplätze gibt.  
-- Eines Tages schickte mir ein anderer Freund in Deutschland eine kurze Nachricht. Er erwähnte dabei, dass es in Deutschland viele Ausbildungsplätze für Pflegefachkräfte gibt und die Aussichten sehr gut sind. Aus diesem Grund habe ich mich entschlossen, in meiner Freizeit Deutsch zu lernen, um meine Chancen zu erhöhen, in Zukunft als Pflegefachkraft in Deutschland zu arbeiten.
+Im Jahr 2022 habe ich meinen Bachelor in **Geoinformatik**, einem ingenieurwissenschaftlichen Fach, an der **Shanghai Ocean University** abgeschlossen.
+## Relevante Berufserfahrung
+[...]
 ## Sprachen
-- Nun habe ich das **Goethe-Zertifikat** B1 erfolgreich erworben und die Teile Sprechen, Lesen und Schreiben des Niveaus B2 bestanden. Jetzt bemühe ich mich, den Teil Hören zu verbessern, indem ich YouTube-Videos nachspreche und wiederhole.
-- Darüber hinaus verfüge ich über **Englischkenntnisse** auf ungefähr B1-Niveau.
+- Deutsch B2
+- Englisch B1
 ## Hobbys 
-Mit Freunden Melodien summen und in der Natur spazieren gehen. Dadurch könnten wir Stress abbauen und unsere Akkus aufladen.
+- Melodien summen
+- In der Natur spazieren gehen
+- Chinesisch online unterrichten
 ## Stärken & Schwächen
 - **aufgeschlossen**  
 Im Alltag habe ich immer eine positive Einstellung zu verschiedenen Kulturen. Ich genieße es, mich mit Menschen aus verschiedenen Hintergründen und Bereichen auszutauschen, deren unterschiedliche Denkweisen und Perspektiven mir stets neue Anregungen und Freude bereiten.   
-- **lernbereit**  
-Das heisst, trotz meiner intensiven Arbeit nutze ich meine Freizeit, um Online-Kursen teilzunehmen und meine beruflichen Fähigkeiten zu verbessern.
-- **Manchmal sehr selbstkritisch**  
-Zum Beispiel muss ich jeden Tag bestimmte Ziele beim Deutschlernen erreichen, ansonsten schlafe ich später ein. Jetzt habe ich erkannt, dass Nachhaltigkeit, also meine eigene Gesundheit, für langfristige Ziele besser ist.
+- **sorgfältig**  
+[...]
+- **selbstkritisch**  
+[...]
 ## Persönlichkeit
-INTP
+INTP...
 ## Was machen Sie zur Zeit?
-Nach der Kündigung habe ich seit Ende letzten Jahres in Vollzeit Deutsch mit meinem Lernpartner gelernt. Momentan genieße ich die Zeit mit meiner Familie. Während dieser Zeit half ich meiner Familie viel, da ich bisher keine Gelegenheit hatte, längere Zeit zu Hause zu bleiben. Ich unterrichte meine Schwester, wie man Google Übersetzer benutzt, um im Wattierung-Kleidungsgeschäft mit Ausländern zu verhandeln, und ich bringe meinem Neffen bei, wie er ChatGPT zur Unterstützung beim Englischlernen verwenden kann.  
-Zur Zeit helfe ich in dem kleinen Restaurant meines Bruders mit einigen einfachen Aufgaben, wie das Überprüfen der Rechnungen, das Reinigen der Tische und des Bodens. In meiner Freizeit lerne ich Beruf Deutsch.
+[...]
 # Motivation
 ## Qualität
-Die Pflegeausbildung in **Deutschland** gehört zur Weltspitze. Dadurch kann man nicht nur **Berufserfahrungen sammeln**, sondern auch einige **Vergütungen erhalten**, um den eigenen Alltag zu finanzieren.
+Die Ausbildung in **Deutschland** gehört zur Weltspitze. Dadurch kann man nicht nur **Berufserfahrungen sammeln**, sondern auch einige **Vergütungen erhalten**, um den eigenen Alltag zu finanzieren.
 ## Sozialversicherung
 Wie allgemein bekannt ist, ist das **Sozialversicherungssystem** in Deutschland sehr attraktiv für diejenigen, die stabil in Deutschland arbeiten und leben möchten.
-## Was sagt ihre Familie dazu, dass Sie nach Deutschland gehen?
-Meine Familie sind dafür, dass ich in Zukunft als Pflegefachmann in Deutschland arbeiten. Sie haben jedoch auch Bedenken um die Sicherheit geäußert, weil sie nur ein bisschen über Deutschland wissen. Dazu habe ich viele Erfahrungsbeiträge von Chinesen in Deutschland im Internet gelesen, so kann ich ein umfassendes Bild von Deutschland bekommen und dann kann ich mich auch leichter in die deutsche Gesellschaft integrieren.
 ## Sinn
 Basierend auf dem **christlichen Menschenbild** kümmern sich Pflegefachkräfte um die Gesundheit der Patienten, indem sie kranke Menschen pflegen und alte Menschen auf dem letzten Stück ihres Lebens begleiten. Das finde ich sehr sinnvoll.
 ## Work-Life-Balance
+[...]
+## Was sagt ihre Familie dazu, dass Sie nach Deutschland gehen?
+Meine Familie sind dafür, dass ich in Zukunft als Pflegefachmann in Deutschland arbeiten. Sie haben jedoch auch Bedenken um die Sicherheit geäußert, weil sie nur ein bisschen über Deutschland wissen. Dazu habe ich viele Erfahrungsbeiträge von Chinesen in Deutschland im Internet gelesen, so kann ich ein umfassendes Bild von Deutschland bekommen und dann kann ich mich auch leichter in die deutsche Gesellschaft integrieren.
 # Beruf/Arbeit
 ## Übersicht
 Die Ausbildung zum Pflegefachmann dauert in Vollzeit **drei Jahre**. Sie besteht aus 2 Teilen: 2100 Stunden **Theorie** und 2500 Stunden **Praxis**. Theoriephasen an der Schule wechseln sich mit Praxisphasen in verschiedenen Pflegeeinrichtungen 4 bis 6 Wochen ab. Durch die generalistische Ausrichtung kann man auch alle Pflegebereiche kennenlernen: Altenheim (stationäre Pflege), Krankenhaus (akute Pflege) und Pflegedienst (ambulante Pflege). Nach Abschluss der Ausbildung legt man die staatliche Prüfung zum Pflegefachmann ab.
@@ -57,13 +56,10 @@ Soweit ich weiß, haben Pflegefachkräfte vier Hauptaufgaben.
 2. **Kommunikation**: Ich würde den Patienten über den gesamten Prozess informieren und sicherstellen, dass er damit einverstanden ist.
 3. **Waschen**: Ich würde mit dem Gesicht anfangen und mich dann zum Rest des Körpers vorarbeiten. Sanft und systematisch, um keinen Bereich zu übersehen. 
 4. **Abspülen und Trocknen**: Danach würde ich sicher gehen, dass keine Seife mehr auf der Haut des Patienten ist und sie anschließend mit einem Handtuch trocken tupfen.
-5. **Komfort**: Nach dem Waschen würde ich jede nötige Hilfe beim Anziehen anbieten und dafür sorgen, dass der Patient sich wohl und gepflegt fühlt.  
+5. **Komfort**: Nach dem Waschen würde ich jede nötige Hilfe beim Anziehen anbieten und dafür sorgen, dass der Patient sich wohl und gepflegt fühlt.
+### [...]
 ## Arbeitszeiten
 Als Pflegefachmann arbeite ich **38 bis 40 Stunden** pro Woche im **Schichtdienst**, da Patienten **rund um die Uhr** auf Hilfe angewiesen sind, arbeite ich auch **nachts, am Wochenende sowie an Feiertagen**. Als Ausgleich dafür habe ich dann an einem anderen **Wochentag** frei. 
-## Überstunden
-Wenn meine persönliche Situation es erlaubt und die Arbeit es erfordert, bin ich bereit, in Maßen Überstunden zu machen.
-## Was ist für Sie eine gute Schicht?
-Eine geruhsame Umgebung, eine gute Kommunikation im Team, genügend Zeit für jeden Patienten usw. Es ist auch wichtig, dass ich am Ende der Schicht das Gefühl habe, dass ich einen positiven Einfluss auf das Wohlergehen meiner Patienten hatte.
 ## Lerninhalt
 Grundlagen zum Ausbildungsstart  
 Unterstützung der Patienten bei Bewegung und Selbstversorgung  
@@ -78,10 +74,9 @@ Pflege von Kindern und Jugendlichen
 Pflege von Patienten mit psychischen Problemen
 ## Stadt/Unternehmen/Kultur/Produkte  
 Ich habe auf der Internetseite erfahren, dass das MZG in Bad Lippspringe liegt und dass es dort rund 850 Betten und über 1100 Beschäftigte gibt.
-## Erfahrungen
-Bis jetzt habe ich noch keine Erfahrungen im Pflegebereich gesammelt. Aber ich hatte eine Erfahrung mit meiner Cousine. Sie hatte eine Operation wegen eines Tumors. Während sie sich danach zu Hause erholte, spürte sie einige Nebenwirkungen und fürchtete den Tod. Daher besuchte ich sie jede Woche, um sie zu begleiten, und erklärte ihr, dass die Angst vor dem Tod eine normale Reaktion ist. Ich schlug vor, ihre Gefühle mit Familien und Freunden zu teilen und deren Unterstützung zu suchen, damit sie sich nicht alleine fühlt.
 ## Lernmethode
-Meiner Meinung nach ist es für mich sehr effektiv, während der Arbeit oder des Kurses Notizen zu machen und Feedback einzuholen, um dann in meiner Freizeit das Gelernte zu vertiefen, indem ich die Notizen wiederhole.
+- Notizen machen
+- Feedback einholen
 ## Abteilung  
 Ich habe keine tiefe Kenntnisse über die verschiedenen Abteilungen in deutschen Krankenhäusern. 
 **Anfangs** werde ich **flexibel** in der angegebenen Abteilung gemäß den Bedürfnissen des Krankenhauses arbeiten, **später** könnte ich dazu **neigen**, mich in einer bestimmten Abteilung zu einsetzen. Unabhängig von der Abteilung werde ich immer verantwortungsvoll arbeiten und hochwertige Pflegedienstleistungen anbieten.
@@ -92,7 +87,7 @@ Ich habe keine tiefe Kenntnisse über die verschiedenen Abteilungen in deutschen
 4. Dann würde ich einen **Weg finden**, den Konflikt zu lösen, oder gegebenenfalls Hilfe von Vorgesetzten oder der Personalabteilung suchen.
 5. Als Letzter würde ich aus jedem Konflikt **lernen** und **wachsen**. Das heißt, ich würde analysiere die Situation, um die Ursache des Problems zu finden und zukünftige Konflikte zu vermeiden.
 ## Umgang mit Stress 
-Um Stress abzubauen, nehme ich zunächst drei tiefe Atemzüge, dann setze ich klare Prioritäten und zerlege große Ziele in kleinere Schritte. Dadurch kann ich den Kopf ausschalten und den Aufgaben neu orientieren. Wenn ich ein Problem nicht selbst lösen kann, suche ich Hilfe bei erfahrenen Kollegen und Vorgesetzten.
+Um Stress abzubauen, nehme ich zunächst **drei tiefe Atemzüge**, dann **setze** ich **klare Prioritäten** und **zerlege große Ziele in kleinere Schritte**. Dadurch kann ich den Kopf ausschalten und den Aufgaben neu orientieren. Wenn ich ein Problem nicht selbst lösen kann, suche ich Hilfe bei erfahrenen Kollegen und Vorgesetzten.
 ## Umgang mit Kollegen
 Ich denke, das Wichtigste im Umgang mit Kollegen ist **Respekt**. Jeder Kollege hat seine eigene einzigartige Arbeitsweise und Kommunikationsstil. Um gemeinsame Arbeitsziele zu erreichen, kann nur durch gegenseitigen Respekt effektiv gearbeitet werden.
 ## Herausforderungen & Gegenmassnahmen
@@ -103,15 +98,17 @@ Ich glaube, dass eine **gesunde Ernährung**, **ausreichender Schlaf** und **hä
 **Psychische Stabilität** (z.B. im Umgang mit schwer kranken oder sterbenden Patienten)  
 a)Wenn ich mit dem Tod von Patienten konfrontiert bin, **erlaube** ich mir, Trauer zu empfinden, denn das ist eine normale und gesunde emotionale Reaktion.  
 b)Ich erinnere mich daran, dass ich zu der Zeit, als der Patient mich am meisten brauchte, **alles getan habe**, was ich konnte.  
-c)Gleichzeitig verstehe ich, dass Trauer **Zeit braucht**, um sich abzuschwächen und akzeptiert zu werden.  
-d)Um mir zu helfen, besser damit umzugehen, leite ich mich durch Meditation dazu an, meine **Aufmerksamkeit** von der anhaltenden Trauer auf die Dinge zu **lenken**, die mich in diesem Moment entspannen.  
+c)Natürlich verstehe ich, dass Trauer **Zeit braucht**, um sich abzuschwächen und akzeptiert zu werden.  
+d)Um besser mit der Situation umzugehen, lenke ich meine **Aufmerksamkeit** durch **Meditation** von meiner anhaltenden Trauer auf entspannende Dinge in diesem Moment.
 Auf diese Weise kann ich **beruhigter** und **gelassener** mit der anstehenden Arbeit umgehen.
 ## Wo sehen Sie sich in fünf Jahren beruflich?
-- Als Erstes möchte ich meine Ausbildung erfolgreich abschließen.  
-- Langfristig gesehen hoffe ich, dass ich nach der Ausbildung Deutsch auf dem Niveau C1 erreichen kann und wenn alles gut läuft, würde ich gerne als Pflegefachmann in einer bestimmten Abteilung in dem Unternehmen weiterarbeiten.
+- Als Erstes möchte ich meine **Ausbildung** erfolgreich **abschließen**.  
+- Langfristig gesehen hoffe ich, dass ich nach der Ausbildung **Deutsch** auf dem Niveau **C1** erreichen kann und wenn alles gut läuft, würde ich gerne als Pflegefachmann in einer bestimmten Abteilung in dem Unternehmen **weiterarbeiten**.
 ## Was denken Sie denn, welche Werte und welche Einstellungen sollte ein Mensch haben, wenn er in der Pflege arbeiten möchte?
-- **Einfühlungsvermögen** und **Kontaktfähigkeit** (z.B. im Umgang mit Patienten und Angehörigen)  
-Respektieren und hören Sie auf die Bedürfnisse der Patienten und ihrer Familien, und versuchen Sie, ihre Situation und Gefühle zu verstehen. Kommunizieren Sie mit ihnen in klarer Sprache, bieten Sie emotionale und materielle Unterstützung an und helfen Sie ihnen, die Herausforderungen im Krankheits- und Behandlungsprozess zu bewältigen.  
+- **Einfühlungsvermögen**
+Respektieren und hören Sie auf die Bedürfnisse der Patienten und ihrer Familien, und versuchen Sie, ihre Situation und Gefühle zu verstehen. 
+- **Kontaktfähigkeit** 
+Kommunizieren Sie mit ihnen in klarer Sprache, bieten Sie emotionale und materielle Unterstützung an und helfen Sie ihnen, die Herausforderungen im Krankheits- und Behandlungsprozess zu bewältigen.  
 # Erfolge
 ## Selbstständig Deutsch lernen(Selbstlernfähigkeit)
 VHS-Lernportals aus Deutschland
@@ -136,4 +133,5 @@ Durch diese Frage möchte der Arbeitgeber mehr über die langfristigen beruflich
 # Endung
 Keine Frage mehr. Vielen Dank, dass Sie sich die Zeit genommen haben. Und ich wünsche Ihnen einen schönen Tag.
 # Tipps
-Entschuldigung, ich habe Ihre Frage nicht ganz verstanden, könnten Sie das bitte genauer erklären?
+- Meinen Sie, warum/was/wie ...?
+- Entschuldigung, ich habe Ihre Frage nicht ganz verstanden, könnten Sie das bitte genauer erklären?
