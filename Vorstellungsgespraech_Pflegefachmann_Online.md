@@ -118,6 +118,14 @@ Online-Seminar aus Österreich
 Lernpartner
 Chatbot
 Discord-Community GLaD
+# Nachfrage 
+- Wie sieht die Betreuung während der Ausbildung aus? Wer sind die Ansprechpartner bei Fragen oder Problemen?   
+- Wie groß sind die Chancen, nach der Ausbildung in Ihrem Unternehmen weiterarbeiten zu können?
+# Endung
+Keine Frage mehr. Vielen Dank, dass Sie sich die Zeit genommen haben. Und ich wünsche Ihnen einen schönen Tag.
+# Tipps
+- Meinen Sie, warum/was/wie ...?
+- Entschuldigung, ich habe Ihre Frage nicht ganz verstanden, könnten Sie das bitte genauer erklären?
 # Die häufigsten Fragen während eines Vorstellungsgesprächs
 ## Können Sie etwas über sich selbst erzählen?
 Diese Frage bietet dem Arbeitgeber die Möglichkeit, einen ersten Eindruck vom Bewerber zu gewinnen und mehr über seine Hintergrundinformationen, Fähigkeiten und Persönlichkeit zu erfahren. Es ermöglicht dem Bewerber auch, sich kurz vorzustellen und die wichtigsten Punkte seines beruflichen Werdegangs hervorzuheben.
@@ -129,11 +137,3 @@ Diese Frage zielt darauf ab, konkrete Beispiele für die beruflichen Erfahrungen
 Diese Frage soll Einblicke in die Problemlösungsfähigkeiten, Konfliktlösungskompetenzen und die allgemeine Arbeitsweise des Bewerbers bieten. Sie ermöglicht es dem Arbeitgeber, herauszufinden, wie der Bewerber mit schwierigen Situationen umgeht und ob er über die Fähigkeiten verfügt, um effektiv mit Herausforderungen im Arbeitsumfeld umzugehen.
 ## Wo sehen Sie sich in fünf Jahren beruflich?
 Durch diese Frage möchte der Arbeitgeber mehr über die langfristigen beruflichen Ziele und Ambitionen des Bewerbers erfahren. Sie ermöglicht es dem Arbeitgeber, einzuschätzen, ob der Bewerber langfristig in das Unternehmen passen und sich weiterentwickeln könnte, und ob seine Ziele mit den Entwicklungsmöglichkeiten innerhalb des Unternehmens übereinstimmen.
-# Nachfrage 
-- Wie sieht die Betreuung während der Ausbildung aus? Wer sind die Ansprechpartner bei Fragen oder Problemen?   
-- Wie groß sind die Chancen, nach der Ausbildung in Ihrem Unternehmen weiterarbeiten zu können?
-# Endung
-Keine Frage mehr. Vielen Dank, dass Sie sich die Zeit genommen haben. Und ich wünsche Ihnen einen schönen Tag.
-# Tipps
-- Meinen Sie, warum/was/wie ...?
-- Entschuldigung, ich habe Ihre Frage nicht ganz verstanden, könnten Sie das bitte genauer erklären?
