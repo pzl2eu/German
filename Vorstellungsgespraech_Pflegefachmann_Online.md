@@ -26,6 +26,8 @@ INTP...
 ## Was machen Sie zur Zeit?
 [...]
 # Motivation
+## Geschichte
+[...]
 ## Qualität
 Die Ausbildung in **Deutschland** gehört zur Weltspitze. Dadurch kann man nicht nur **Berufserfahrungen sammeln**, sondern auch einige **Vergütungen erhalten**, um den eigenen Alltag zu finanzieren.
 ## Sozialversicherung
