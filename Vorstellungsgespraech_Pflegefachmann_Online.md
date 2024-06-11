@@ -4,7 +4,7 @@ Vielen Dank für die Einladung. Ehrlich gesagt bin ich ein bisschen aufgeregt un
 ## Über mich  
 Mein Name ist [...] und ich komme aus [...], einer Stadt nicht weit von Peking entfernt.  
 ## Höchster Bildungsabschluss  
-Im Jahr 2022 habe ich meinen Bachelor in **Geoinformatik**, einem ingenieurwissenschaftlichen Fach, an der **Shanghai Ocean University** abgeschlossen.
+Im Jahr 2022 habe ich meinen Bachelor in **[Studienfach]**, einem ingenieurwissenschaftlichen Fach, an der **[Uni]** abgeschlossen.
 ## Relevante Berufserfahrung
 [...]
 ## Sprachen
