@@ -23,6 +23,8 @@ Im Alltag habe ich immer eine positive Einstellung zu verschiedenen Kulturen. Ic
 [...]
 ## Persönlichkeit
 INTP...
+## Brüche und Lücken im Lebenslauf
+[...]
 ## Was machen Sie zur Zeit?
 [...]
 # Motivation
