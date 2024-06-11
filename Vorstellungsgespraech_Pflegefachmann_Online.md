@@ -107,9 +107,9 @@ Auf diese Weise kann ich **beruhigter** und **gelassener** mit der anstehenden A
 - Als Erstes möchte ich meine **Ausbildung** erfolgreich **abschließen**.  
 - Langfristig gesehen hoffe ich, dass ich nach der Ausbildung **Deutsch** auf dem Niveau **C1** erreichen kann und wenn alles gut läuft, würde ich gerne als Pflegefachmann in einer bestimmten Abteilung in dem Unternehmen **weiterarbeiten**.
 ## Was denken Sie denn, welche Werte und welche Einstellungen sollte ein Mensch haben, wenn er in der Pflege arbeiten möchte?
-- **Einfühlungsvermögen**
+- **Einfühlungsvermögen**  
 Respektieren und hören Sie auf die Bedürfnisse der Patienten und ihrer Familien, und versuchen Sie, ihre Situation und Gefühle zu verstehen. 
-- **Kontaktfähigkeit** 
+- **Kontaktfähigkeit**  
 Kommunizieren Sie mit ihnen in klarer Sprache, bieten Sie emotionale und materielle Unterstützung an und helfen Sie ihnen, die Herausforderungen im Krankheits- und Behandlungsprozess zu bewältigen.  
 # Erfolge
 ## Selbstständig Deutsch lernen(Selbstlernfähigkeit)
