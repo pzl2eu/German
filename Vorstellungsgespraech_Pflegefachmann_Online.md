@@ -22,7 +22,9 @@ Im Alltag habe ich immer eine positive Einstellung zu verschiedenen Kulturen. Ic
 - **selbstkritisch**  
 [...]
 ## Persönlichkeit
-INTP...
+ISTP...
+Action-oriented, logical, analytical, spontaneous, reserved, independent.  
+Enjoy adventure, skilled at understanding how mechanical things work.
 ## Brüche und Lücken im Lebenslauf
 [...]
 ## Was machen Sie zur Zeit?
