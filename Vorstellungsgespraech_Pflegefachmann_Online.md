@@ -23,8 +23,8 @@ Im Alltag habe ich immer eine positive Einstellung zu verschiedenen Kulturen. Ic
 [...]
 ## Persönlichkeit
 _ISTP_  
-Action-oriented, logical, analytical, spontaneous, reserved, independent.  
-Enjoy adventure, skilled at understanding how mechanical things work.
+Action-orientiert, logisch, analytisch, spontan, zurückhaltend, unabhängig.
+Genießt Abenteuer, geschickt darin, wie mechanische Dinge funktionieren zu verstehen.
 ## Brüche und Lücken im Lebenslauf
 [...]
 ## Was machen Sie zur Zeit?
