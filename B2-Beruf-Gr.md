@@ -70,3 +70,10 @@
 11-6-2  Konjunktiv I und indirekte Rede  
 11-12-3 Kausalsätze  
 
+12-1-4  Konsekutive Nebensätze  
+12-3-2  Konzessive Sätze  
+12-4-1  Konsekutive Adverbien  
+12-5-2  Finale Nebensätze  
+12-8-1  Angaben im Satz  
+12-10-5 Konsekutive Präpositionen  
+
