@@ -45,3 +45,14 @@
 6-12-4 Adjektivdeklination mit dem Nullartikel  
 6-12-5 Besondere Adjektive  
 
+7-1-5  Verben mit Präpositionen  
+7-2-4  Indirekte Fragen  
+7-8-1  Passiv Präsens  
+7-9-4  Zustandspassiv im Präsens  
+7-10-4 Konjunktiv II Gegenwart  
+
+8-1-3  Modalpartikeln und ihre Bedeutung  
+8-4-3  Präpositionen mit Genitiv  
+8-5-3  Deklination des Genitivs  
+8-5-4  Verbalisierung und Nominalisierung  
+
