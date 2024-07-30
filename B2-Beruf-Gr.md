@@ -24,3 +24,9 @@
 3-11-3 Konjunktiv II Vergangenheit  
 3-12-4 Irreale Wunschsätze  
 3-13-4 Konjunktiv II Vergangenheit mit Modalverben  
+
+4-1-1  Verben mit Präpositionen  
+4-2-1  Präpositionaladverbien  
+4-5-2  Fragen nach einer Präpositionalergänzung  
+4-6-1  Relativsätze  
+
