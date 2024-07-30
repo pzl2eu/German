@@ -30,3 +30,12 @@
 4-5-2  Fragen nach einer Präpositionalergänzung  
 4-6-1  Relativsätze  
 
+5-2-3  Finale Nebensätze  
+5-5-4  Temporale Präpositionen  
+5-6-1  Nominalisierung  
+5-6-5  Finale Präposition  
+5-8-4  Wechselpräpositionen  
+5-10-3 Finale Präpositionen  
+5-13-4 Finale Adverbien "dafür" und "dazu"  
+5-13-5 Finale Sätze mit Adverbien und Modalverb  
+
