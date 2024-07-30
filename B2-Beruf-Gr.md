@@ -86,3 +86,11 @@
 14-2-3  Subjektive Bedeutung des Modalverbs "sollen"  
 14-6-2  Subjektive Bedeutung der Modalverben  
 
+15-1-4  Irreale Vergleichssätze  
+15-3-4  Wortbildung Adjektive mit der Endung -bar  
+15-3-5  Passiversatzform Adjektive mit den Endungen -bar und -lich  
+15-6-4  Passiversatzform "sich lassen"  
+15-8-4  Irreale Vergleichssätze ohne "ob"  
+15-9-5  Konjunktiv II Gegenwart  
+15-11-4 Passiversatzform "sein ... zu"  
+
