@@ -77,3 +77,12 @@
 12-8-1  Angaben im Satz  
 12-10-5 Konsekutive Präpositionen  
 
+13-1-4  der Imperativ  
+13-3-4  Passiv Präsens  
+13-6-3  Passiv Perfekt  
+13-6-4  Passiv Präteritum  
+13-9-5  Zustandspassiv im Präsens  
+
+14-2-3  Subjektive Bedeutung des Modalverbs "sollen"  
+14-6-2  Subjektive Bedeutung der Modalverben  
+
