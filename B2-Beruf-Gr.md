@@ -94,3 +94,10 @@
 15-9-5  Konjunktiv II Gegenwart  
 15-11-4 Passiversatzform "sein ... zu"  
 
+16-4-3  Adversativsätze  
+16-6-4  Konjunktiv II Gegenwart  
+16-11-3 Konzessive Sätze  
+
+20-5-4  Zustandspassiv Präsens  
+20-14-2 das Präteritum  
+20-14-5 Zustandspassiv Präteritum  
