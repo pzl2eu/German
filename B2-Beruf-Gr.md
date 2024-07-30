@@ -39,3 +39,9 @@
 5-13-4 Finale Adverbien "dafür" und "dazu"  
 5-13-5 Finale Sätze mit Adverbien und Modalverb  
 
+6-3-3  Adjektivdeklination mit dem bestimmten Artikel  
+6-4-4  Adjektivdeklination mit dem unbestimmten Artikel  
+6-7-3  Adjektive mit der Endung -a  
+6-12-4 Adjektivdeklination mit dem Nullartikel  
+6-12-5 Besondere Adjektive  
+
