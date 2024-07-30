@@ -62,3 +62,11 @@
 9-11-1 Finale Nominalisierung  
 9-15-2 Konzessive Nominalisierung  
 
+10-2-4  Konditionale Nebensätze  
+10-3-3  Konditionale Adverbien "sonst" und "andernfalls"  
+10-12-5 Konditionale Präpositionen  
+
+11-2-1  Konjunktiv II Gegenwart  
+11-6-2  Konjunktiv I und indirekte Rede  
+11-12-3 Kausalsätze  
+
