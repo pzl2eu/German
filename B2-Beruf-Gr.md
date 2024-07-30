@@ -56,3 +56,9 @@
 8-5-3  Deklination des Genitivs  
 8-5-4  Verbalisierung und Nominalisierung  
 
+9-3-4  Verbalisierung - Nominalisierung  
+9-7-1  Konditionale Nominalisierung  
+9-8-4  Temporale Nominalisierung  
+9-11-1 Finale Nominalisierung  
+9-15-2 Konzessive Nominalisierung  
+
