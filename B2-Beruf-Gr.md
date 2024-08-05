@@ -98,6 +98,11 @@
 16-6-4  Konjunktiv II Gegenwart  
 16-11-3 Konzessive Sätze  
 
+17-1-5  Passiv Präsens  
+17-2-3  Passiv Präteritum  
+17-3-4  Doppelte Konjunktionen  
+17-10-2 Partizip I  
+
 20-5-4  Zustandspassiv Präsens  
 20-14-2 das Präteritum  
 20-14-5 Zustandspassiv Präteritum  
