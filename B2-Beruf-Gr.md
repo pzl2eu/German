@@ -103,6 +103,11 @@
 17-3-4  Doppelte Konjunktionen  
 17-10-2 Partizip I  
 
+18-2-3  Kausale Adverbien  
+18-3-2  Modalsätze  
+18-5-4  Modale Sätze mit "ohne dass", "ohne ... zu" und "ohne"  
+18-6-4  Modale Sätze mit "(an)statt", "(an)statt ... zu" und "stattdessen"  
+
 20-5-4  Zustandspassiv Präsens  
 20-14-2 das Präteritum  
 20-14-5 Zustandspassiv Präteritum  
