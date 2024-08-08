@@ -108,6 +108,9 @@
 18-5-4  Modale Sätze mit "ohne dass", "ohne ... zu" und "ohne"  
 18-6-4  Modale Sätze mit "(an)statt", "(an)statt ... zu" und "stattdessen"  
 
+19-2-1  Modalpartikeln  
+19-9-1  Infinitivsätze  
+
 20-5-4  Zustandspassiv Präsens  
 20-14-2 das Präteritum  
 20-14-5 Zustandspassiv Präteritum  
