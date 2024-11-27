@@ -41,12 +41,8 @@ Genießt Abenteuer, geschickt darin, wie mechanische Dinge funktionieren zu vers
 ## Umgang mit Kollegen 
 ## Herausforderungen & Gegenmassnahmen 
 # Erfolge(STARR:Situation, Task, Action, Result, Reflection)
-## Selbstständig Deutsch lernen(Selbstlernfähigkeit)
-VHS-Lernportals aus Deutschland  
-Online-Seminar aus Österreich  
-Lernpartner  
-Chatbot  
-Discord-Community GLaD
+Was mir in meinem Leben gut gelungen ist? Hmm.
+Ich glaube, dass ich jemand bin, der ganz gut darin ist, die eigenen Fehler zu erkennen und daran zu wachsen.
 # Nachfrage 
 - Wie sieht die Betreuung während der Ausbildung aus? Wer sind die Ansprechpartner bei Fragen oder Problemen?   
 - Wie groß sind die Chancen, nach der Ausbildung in Ihrem Unternehmen weiterarbeiten zu können?
